@@ -1,7 +1,7 @@
 ---
 title: "如何使用 Movavi 將 JPEG 免費轉換為PNG: 順利在線上進行非商業性質的格式更動"
-date: 2024-09-12 10:32:27
-updated: 2024-09-13 11:14:43
+date: 2024-09-13T01:07:00.955Z
+updated: 2024-09-16T05:49:14.798Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/6b2ec2941933023600c9882b03f190635c85fa9ba36f059f6adc757c4d4da9ce.jpg
@@ -176,6 +176,13 @@ Cet article vous présente les réglages de performance pour les jeux que vous p
 
 Avant de commencer, il est toujours bon d'avoir un compteur de FPS dans le jeu, afin de pouvoir suivre vos progrès et tester les réglages qui fonctionnent. De nombreux jeux les ont préinstallés, mais si vous installez [MSI Afterburner](https://www.msi.com/Landing/afterburner/graphics-cards), vous ne serez jamais sans cet outil utile dans n'importe quel jeu.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 
 
 Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
@@ -210,9 +217,23 @@ Voici quelques liens vers les mises à jour des pilotes des fabricants les plus 
 * [Pilotes NVIDIA](https://www.nvidia.com/Download/index.aspx)
 * [Pilotes Intel Graphics](https://www.intel.com/content/www/us/en/support/products/80939/graphics-drivers.html)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Installer DirectX 12
 
 ![](https://cdn.staticont.net/default/0012/47/72e52d810cb1f6f8d15a641fc4b287b8c43fbcd6.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 DirectX 12 est un outil indispensable pour quiconque souhaite jouer à des jeux sur Windows 10\. Pour faire simple, DirectX est l'application que le jeu utilise pour communiquer avec votre ordinateur et lui dire quoi faire. DirectX 12 est une grande amélioration par rapport à son prédécesseur, DirectX 11, car il permet aux cartes graphiques de tirer des ressources de plus d'un cœur du processeur d'un PC, ce qui augmente les fréquences d'images, améliore les effets graphiques et réduit la consommation d'énergie. Des tests ont montré une différence de 85 à 300 % dans les performances de jeu entre la version 11 et la version 12.
 
@@ -338,6 +359,13 @@ Quant à l'aspect financier, si un gros SSD pour votre système d'exploitation e
 
 ![](https://cdn.staticont.net/default/0012/47/4d8d362406e5747022cddcbbe642fe7d57c6a558.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Mettez à niveau votre GPU et votre CPU environ tous les quatre ans pour que tout fonctionne bien. Mais si vous êtes un joueur, vous devrez peut-être le faire plus tôt, car la technologie évolue beaucoup plus rapidement dans ce secteur.
 
 Le choix de la première mise à niveau dépend des types de jeux auxquels vous jouez. Si vous n'avez pas besoin de graphismes extrêmes et jouez à des jeux plus rapides, le processeur est le meilleur choix. Mais si vous aimez les histoires numériques ou les jeux basés sur le monde avec beaucoup de personnages et d'arrière-plans non jouables, un GPU pourrait vous être plus utile.
@@ -351,6 +379,19 @@ La mise à niveau de votre RAM n'aura pas un effet aussi important que la mise �
 De nombreux jeux requièrent une mémoire vive de 8 Go, mais ce chiffre augmente régulièrement, car les titres les plus récents recommandent une mémoire vive de 12 Go. 
 
 Si vous voulez rester en tête de la courbe, 16 Go suffiront pour l'instant. Mais si vous voulez utiliser des services de streaming en arrière-plan comme Twitch, Discord et YouTube, vous devrez passer à 32 Go pour pouvoir tout faire fonctionner sans problème.
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Désactiver l'algorithme de Nagle
 
@@ -536,11 +577,27 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-tips.techidaily.com/updated-the-cinematographers-playbook-top-5-creative-strategies/"><u>[Updated] The Cinematographer's Playbook Top 5 Creative Strategies</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/focusing-gpo-application-one-user-approach-for-windows-1111/"><u>Focusing GPO Application: One-User Approach for Windows 11/11</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/free-downloads-compatible-bluetooth-drivers-for-dell-computers-on-windows/"><u>Free Downloads: Compatible Bluetooth Drivers for Dell Computers on Windows</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/free-flat-transfer-program-seamless-conversion-between-flv-videos-and-other-formats/"><u>Free Flat Transfer Program: Seamless Conversion Between FLV Videos & Other Formats</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/gopro-mp4/"><u>GoPro MP4ビデオの変換手順: 専用アプリ使い</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/guide-discovering-and-downloading-your-favorite-tunes-onto-an-optical-disk/"><u>Guide: Discovering & Downloading Your Favorite Tunes Onto an Optical Disk</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/hulu/"><u>Hulu番組のパソコン上でのスクリーンレコーディングテクニック</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-picsart-unveiled-full-analysis-and-step-by-step-tutorial/"><u>In 2024, PicsArt Unveiled Full Analysis & Step-by-Step Tutorial</u></a></li>
+<li><a href="https://program-issues.techidaily.com/major-league-baseball-fixing-the-server-issue-in-mls-the-show-2021-edition/"><u>Major League Baseball: Fixing the 'Server Issue' In MLS The Show 2021 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/microsoft-flight-simulator-x-gold-top-tier-aviation-experience-unbeatable-in-reviews/"><u>Microsoft Flight Simulator X Gold: Top-Tier Aviation Experience Unbeatable in Reviews</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/mp3-apps-android-iphone-12/"><u>MP3 コンバーター Apps: Android と iPhone 用に選んだベスト12強</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/quick-and-easy-methods-for-transforming-ts-videos-into-mpegmp4-files/"><u>Quick & Easy Methods for Transforming .TS Videos Into MPEG/MP4 Files</u></a></li>
+<li><a href="https://program-issues.techidaily.com/techniques-to-lower-cpu-consumption-caused-by-new-software-release/"><u>Techniques to Lower CPU Consumption Caused by New Software Release</u></a></li>
+</ul></div>
+
