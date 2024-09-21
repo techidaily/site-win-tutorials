@@ -1,7 +1,7 @@
 ---
 title: "如何使用 Movavi 將 JPEG 免費轉換為PNG: 順利在線上進行非商業性質的格式更動"
-date: 2024-09-13T01:07:00.955Z
-updated: 2024-09-16T05:49:14.798Z
+date: 2024-09-15T18:33:27.583Z
+updated: 2024-09-20T20:29:55.329Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/6b2ec2941933023600c9882b03f190635c85fa9ba36f059f6adc757c4d4da9ce.jpg
@@ -177,10 +177,16 @@ Cet article vous présente les réglages de performance pour les jeux que vous p
 Avant de commencer, il est toujours bon d'avoir un compteur de FPS dans le jeu, afin de pouvoir suivre vos progrès et tester les réglages qui fonctionnent. De nombreux jeux les ont préinstallés, mais si vous installez [MSI Afterburner](https://www.msi.com/Landing/afterburner/graphics-cards), vous ne serez jamais sans cet outil utile dans n'importe quel jeu.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 
@@ -198,6 +204,13 @@ Chaque jeu possède des paramètres graphiques spécifiques qui peuvent vous aid
 1. **Anti-crénelage :** Lorsqu'un jeu utilise le crénelage, il corrige les petites lignes irrégulières et inégales autour de textures ou d'objets spécifiques. Pensez aux lignes floues que vous voyez lorsque l'herbe apparaît dans la plupart des jeux. Chaque jeu possède différents niveaux d'anticrénelage (SSAA, TAA, MSAA, etc.). - et vous pouvez généralement les modifier dans les paramètres du jeu pour obtenir de meilleures performances.
 2. **Flou de mouvement :** Pour rendre les choses plus réalistes, les jeux intègrent des flous de mouvement afin d'émuler la vie réelle. Le désactiver peut souvent vous aider à économiser de la puissance graphique.
 3. **Synchronisation verticale :** Parfois, lorsque vous vous déplacez rapidement, la carte graphique ne peut pas suivre et l'écran semble se déchirer en son milieu. La synchronisation verticale aide à résoudre ce problème mais ajoute un certain décalage. Une façon de corriger ce problème est d'utiliser le VSync adaptatif ou le Triple Buffering. Vous utiliserez davantage de puissance de la carte graphique, mais vous trouverez un juste milieu entre les déchirures et le décalage.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Mettez à jour les pilotes de votre GPU
 
@@ -217,23 +230,9 @@ Voici quelques liens vers les mises à jour des pilotes des fabricants les plus 
 * [Pilotes NVIDIA](https://www.nvidia.com/Download/index.aspx)
 * [Pilotes Intel Graphics](https://www.intel.com/content/www/us/en/support/products/80939/graphics-drivers.html)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Installer DirectX 12
 
 ![](https://cdn.staticont.net/default/0012/47/72e52d810cb1f6f8d15a641fc4b287b8c43fbcd6.webp)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 DirectX 12 est un outil indispensable pour quiconque souhaite jouer à des jeux sur Windows 10\. Pour faire simple, DirectX est l'application que le jeu utilise pour communiquer avec votre ordinateur et lui dire quoi faire. DirectX 12 est une grande amélioration par rapport à son prédécesseur, DirectX 11, car il permet aux cartes graphiques de tirer des ressources de plus d'un cœur du processeur d'un PC, ce qui augmente les fréquences d'images, améliore les effets graphiques et réduit la consommation d'énergie. Des tests ont montré une différence de 85 à 300 % dans les performances de jeu entre la version 11 et la version 12.
 
@@ -248,6 +247,19 @@ Si vous n'avez pas DirectX 12, allez-y et installez-le ; le processus ne prendra
 Utiliser le mode de jeu Windows 10
 
 ![](https://cdn.staticont.net/default/0012/47/d22e37788bfd390747dc00a19758815599d522df.webp)
+
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Voici un moyen simple et rapide d'optimiser Windows 10 pour les jeux en utilisant un outil intégré au système. Le mode Jeu, apparu dans les versions les plus récentes du système d'exploitation, est conçu pour améliorer l'expérience de jeu en consacrant davantage de ressources système aux jeux. Il empêche également d'autres programmes, tels que Windows Update, d'accaparer les ressources du système pendant que vous jouez.
 
@@ -360,10 +372,10 @@ Quant à l'aspect financier, si un gros SSD pour votre système d'exploitation e
 ![](https://cdn.staticont.net/default/0012/47/4d8d362406e5747022cddcbbe642fe7d57c6a558.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Mettez à niveau votre GPU et votre CPU environ tous les quatre ans pour que tout fonctionne bien. Mais si vous êtes un joueur, vous devrez peut-être le faire plus tôt, car la technologie évolue beaucoup plus rapidement dans ce secteur.
@@ -379,19 +391,6 @@ La mise à niveau de votre RAM n'aura pas un effet aussi important que la mise �
 De nombreux jeux requièrent une mémoire vive de 8 Go, mais ce chiffre augmente régulièrement, car les titres les plus récents recommandent une mémoire vive de 12 Go. 
 
 Si vous voulez rester en tête de la courbe, 16 Go suffiront pour l'instant. Mais si vous voulez utiliser des services de streaming en arrière-plan comme Twitch, Discord et YouTube, vous devrez passer à 32 Go pour pouvoir tout faire fonctionner sans problème.
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Désactiver l'algorithme de Nagle
 
@@ -451,6 +450,13 @@ Windows 10 dispose de nombreuses fonctions d'économie d'énergie pour les ordin
 ### Utiliser un plan d'alimentation performant
 
 Pour modifier votre plan d'alimentation, cliquez sur la   **touche Windows** \+ **I**, tapez "alimentation" dans la zone de recherche, choisissez **Paramètres d'alimentation et de veille**, puis **Paramètres d'alimentation supplémentaires**. Si vous ne voyez pas de plan d'alimentation haute performance dans la partie gauche de l'écran, cliquez sur **Créer un plan d'alimentation** et choisissez **Haute performance**.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Empêchez votre ordinateur portable de surchauffer
 
@@ -586,18 +592,20 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-tips.techidaily.com/updated-the-cinematographers-playbook-top-5-creative-strategies/"><u>[Updated] The Cinematographer's Playbook Top 5 Creative Strategies</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/focusing-gpo-application-one-user-approach-for-windows-1111/"><u>Focusing GPO Application: One-User Approach for Windows 11/11</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/free-downloads-compatible-bluetooth-drivers-for-dell-computers-on-windows/"><u>Free Downloads: Compatible Bluetooth Drivers for Dell Computers on Windows</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/free-flat-transfer-program-seamless-conversion-between-flv-videos-and-other-formats/"><u>Free Flat Transfer Program: Seamless Conversion Between FLV Videos & Other Formats</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/gopro-mp4/"><u>GoPro MP4ビデオの変換手順: 専用アプリ使い</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/guide-discovering-and-downloading-your-favorite-tunes-onto-an-optical-disk/"><u>Guide: Discovering & Downloading Your Favorite Tunes Onto an Optical Disk</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/hulu/"><u>Hulu番組のパソコン上でのスクリーンレコーディングテクニック</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-picsart-unveiled-full-analysis-and-step-by-step-tutorial/"><u>In 2024, PicsArt Unveiled Full Analysis & Step-by-Step Tutorial</u></a></li>
-<li><a href="https://program-issues.techidaily.com/major-league-baseball-fixing-the-server-issue-in-mls-the-show-2021-edition/"><u>Major League Baseball: Fixing the 'Server Issue' In MLS The Show 2021 Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/microsoft-flight-simulator-x-gold-top-tier-aviation-experience-unbeatable-in-reviews/"><u>Microsoft Flight Simulator X Gold: Top-Tier Aviation Experience Unbeatable in Reviews</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/mp3-apps-android-iphone-12/"><u>MP3 コンバーター Apps: Android と iPhone 用に選んだベスト12強</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/quick-and-easy-methods-for-transforming-ts-videos-into-mpegmp4-files/"><u>Quick & Easy Methods for Transforming .TS Videos Into MPEG/MP4 Files</u></a></li>
-<li><a href="https://program-issues.techidaily.com/techniques-to-lower-cpu-consumption-caused-by-new-software-release/"><u>Techniques to Lower CPU Consumption Caused by New Software Release</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-ace-your-laughs-kinemaster-for-top-memes/"><u>[New] Ace Your Laughs KineMaster for Top Memes</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-premier-editing-software-for-vimeo-streams-for-2024/"><u>[Updated] Premier Editing Software for Vimeo Streams for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-resonant-revelations-blending-visuals-with-vocal-tones-on-windows/"><u>[Updated] Resonant Revelations Blending Visuals with Vocal Tones on Windows</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1722998299646-beat-saber-stability-issues-resolved-no-more-unexpected-shutdowns/"><u>Beat Saber Stability Issues Resolved – No More Unexpected Shutdowns!</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/change-your-musics-file-type-without-cost-quickly-convert-m4a-to-mov-using-our-web-service/"><u>Change Your Music's File Type Without Cost - Quickly Convert M4A to MOV Using Our Web Service!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-honor-v-purse-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Honor V Purse</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-itel-a60-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Itel A60 Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-15-pro-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone 15 Pro Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/movavi-ripper-dvd-guia-paso-a-paso-para-extraer-archivos-de-dvd/"><u>Movavi Ripper DVD: Guía Paso a Paso Para Extraer Archivos De DVD</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/online-gratuit-konverteren-van-wma-naar-flv-movavi-streaming-solutions/"><u>Online Gratuit Konverteren Van WMA Naar FLV - Movavi Streaming Solutions</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/onlinemka-movavi/"><u>Online無限量選擇性MKA格式轉移服務 - Movavi</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/ripristina-i-tuoi-file-video-da-m4v-a-mp4-gratuitamente-online-con-convertitore-di-video-movavi/"><u>Ripristina I Tuoi File Video Da M4V a MP4 Gratuitamente Online Con Convertitore Di Video - Movavi</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/transformar-archivos-apng-a-gif-sin-exceso-tutorial-con-movavi-online/"><u>Transformar Archivos APNG a GIF Sin Exceso: Tutorial Con Movavi Online</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/trasforma-file-f4v-in-wmv-senza-costi-con-il-servizio-di-movavi/"><u>Trasforma File F4V in WMV Senza Costi Con Il Servizio Di Movavi</u></a></li>
 </ul></div>
 
