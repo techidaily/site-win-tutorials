@@ -1,7 +1,7 @@
 ---
 title: "MacOS High Sierra Support in Dexed Loopers (DEX) Version 3 and Beyond: Unlocking Capabilities with LYRX Plugin on PCDJ"
-date: 2024-11-25T08:49:31.743Z
-updated: 2024-11-30T20:28:31.991Z
+date: 2024-12-07T23:00:38.788Z
+updated: 2024-12-08T17:17:32.198Z
 tags:
   - product
 categories:
@@ -36,7 +36,7 @@ Elevate your DJ game with [DEX 3](https://tools.techidaily.com/pcdj/products/) o
 _**PCDJ enables you to #MixEverything**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -58,19 +58,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/09/macoshighsierra-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ow-to-clear-black-boards-in-your-youtube-videos-for-2024/"><u>[New] How to Clear Black Boards in Your YouTube Videos for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-filmmaking-for-social-media-imovie-tips-for-crafting-square-content/"><u>[New] In 2024, Filmmaking for Social Media IMovie Tips for Crafting Square Content</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resolved-unresponsive-keys-in-windows-11-system/"><u>[Resolved] Unresponsive Keys in Windows 11 System</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-elevate-your-visual-storytelling-advanced-zooming-on-snapchat/"><u>[Updated] 2024 Approved Elevate Your Visual Storytelling Advanced Zooming on Snapchat</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-step-by-step-reversing-video-order-on-vlc-platform/"><u>[Updated] Step-by-Step Reversing Video Order on VLC Platform</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-build-haha-images/"><u>2024 Approved Build Haha Images</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/complete-guide-retrieving-data-from-your-iphone-post-factory-reset/"><u>Complete Guide: Retrieving Data From Your iPhone Post-Factory Reset</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/cookiebot-enabled-customization-unlocking-personalized-experiences/"><u>Cookiebot-Enabled Customization: Unlocking Personalized Experiences</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/discover-the-best-file-transfer-tools-compatible-with-windows-10-8-and-7-as-an-airdrop-replacement/"><u>Discover the Best File Transfer Tools: Compatible with Windows 10, 8 & 7 as an AirDrop Replacement</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-turn-your-voice-to-text-in-real-time-with-whisper-desktop/"><u>How to Turn Your Voice to Text in Real Time With Whisper Desktop</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/revive-your-missed-moments-effective-strategies-for-photo-and-video-recovery-on-iphone-14-13-12/"><u>Revive Your Missed Moments: Effective Strategies for Photo and Video Recovery on iPhone 14, 13, 12</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/secure-your-windows-11-system-with-top-free-software-on-a-portable-usb-drive/"><u>Secure Your Windows 11 System with Top Free Software on a Portable USB Drive</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-saving-your-email-data-from-outlook-365-to-onedrive-exploring-two-reliable-strategies/"><u>Step-by-Step Guide: Saving Your Email Data From Outlook 365 to OneDrive - Exploring Two Reliable Strategies</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/windows-server-2019-iso-a-flash-drive-due-metodi-facili-da-seguire/"><u>Windows Server 2019 ISO a Flash Drive: Due Metodi Facili Da Seguire!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/chieve-balance-and-vitality-top-10-premium-yoga-streams/"><u>[New] Achieve Balance & Vitality - Top 10 Premium Yoga Streams</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-maximize-youtube-traffic-top-viewing-times/"><u>[New] In 2024, Maximize YouTube Traffic Top Viewing Times</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-art-of-youtube-thumbnails-for-mac-professionals/"><u>[Updated] 2024 Approved The Art of YouTube Thumbnails for Mac Professionals</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-navigating-youtubes-economy-a-guide-to-video-revenue-generation/"><u>2024 Approved Navigating YouTube's Economy A Guide to Video Revenue Generation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-quality-guffaws-uncover-the-top-15-youtube-comedy-talents/"><u>2024 Approved Quality Guffaws Uncover the Top 15 YouTube Comedy Talents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-complexity-of-german-studies/"><u>Decoding the Complexity of German Studies</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/professional-dj-secrets-revealed-masterful-techniques-for-maximizing-bookings-and-profitability/"><u>Professional DJ Secrets Revealed - Masterful Techniques for Maximizing Bookings and Profitability</u></a></li>
+<li><a href="https://driver-error.techidaily.com/realtek-ethernet-controller-driver-not-working-after-windows-10-upgrade-solved/"><u>Realtek Ethernet Controller Driver Not Working After Windows 10 Upgrade [Solved]</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/resolving-ram-issues-professional-advice-and-strategies-by-yl-software-experts/"><u>Resolving RAM Issues: Professional Advice and Strategies by YL Software Experts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/standout-instagram-unboxings-a-comprehensive-checklist/"><u>Standout Instagram Unboxings A Comprehensive Checklist</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/stop-scanner-halts-during-scanning-with-these-expert-fixes-by-yl-software-professionals/"><u>Stop Scanner Halts During Scanning with These Expert Fixes by YL Software Professionals</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-itel-p55t-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Itel P55T Screen | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/troubleshooting-pc-startup-issues-solutions-by-yl-computing/"><u>Troubleshooting PC Startup Issues: Solutions by YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/understanding-windows-defenders-antivirus-capabilities-a-comprehensive-guide-by-yl-computing/"><u>Understanding Windows Defender's Antivirus Capabilities: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/unlocking-system-secrets-how-to-safely-access-the-windows-registry-with-tips-from-yl-software-experts/"><u>Unlocking System Secrets: How to Safely Access the Windows Registry with Tips From YL Software Experts</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/unveiling-the-core-elements-inside-your-pcs-hardware-essentials-with-yl-computing/"><u>Unveiling the Core Elements: Inside Your PC's Hardware Essentials with YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/why-singer-prefer-not-using-ksr-web-app-for-songs-and-how-you-can-change-that/"><u>Why Singer Prefer NOT Using KSR Web-App for Songs & How You Can Change That!</u></a></li>
 </ul></div>
 

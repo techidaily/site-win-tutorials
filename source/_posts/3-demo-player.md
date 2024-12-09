@@ -1,7 +1,7 @@
 ---
 title: 3 Demo Player
-date: 2024-11-28T19:25:42.075Z
-updated: 2024-11-30T23:20:08.528Z
+date: 2024-12-07T10:37:54.481Z
+updated: 2024-12-08T20:29:40.207Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,15 +46,17 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-navigating-screen-space-enlargement-on-youtube/"><u>[New] 2024 Approved Navigating Screen Space Enlargement on YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-correct-iosandroid-video-failures-on-fb/"><u>[Updated] Correct iOS/Android Video Failures on FB</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unlock-the-magic-creating-breathtaking-gopro-time-lapse-videos/"><u>2024 Approved Unlock the Magic Creating Breathtaking GoPro Time-Lapse Videos</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/1728499764837-windows-11/"><u>簡単な手順でWindows 11の保護機能を切り替える - オンオフガイド</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/windows-113/"><u>宛先ディレクトリアクセスを回復する：Windows 11での3つの方法</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-view-hevc-h-265-content-on-xiaomi-13t-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Can’t view HEVC H.265 content on Xiaomi 13T</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-infinix-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Infinix on Mac?</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-gaming-treasures-consoles-and-gear-for-kid-players/"><u>Ultimate Gaming Treasures: Consoles and Gear for Kid Players</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/1728488036513-windows-server-2012/"><u>Windows Server 2012用最適なディスクバックアップツール</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/asraa-hl-almshkla-igraaa-thmyl-oiaaada-hykla-byanat-samsung-fy-windows-10/"><u>أسرع حل المشكلة! إجراء تحميل وإعادة هيكلة بيانات Samsung في Windows 10</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-remote-smile-engineer/"><u>[New] In 2024, Remote Smile Engineer</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-sjcam-sj7-star-4k-action-camera-complete-review-2023/"><u>[New] In 2024, SJCam SJ7 Star 4K Action Camera Complete Review 2023</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-vegas-pro-2021-a-detailed-gaming-world-survey/"><u>2024 Approved Vegas Pro 2021 A Detailed Gaming World Survey</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/download-the-latest-dex-36-rc2-premium-video-mixer-by-pioneer-now-available/"><u>Download the Latest DEX 3.6 (RC2): Premium Video Mixer by Pioneer - Now Available!</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/exploring-the-extra-security-layers-of-windows-defender-more-than-just-anti-malware/"><u>Exploring the Extra Security Layers of Windows Defender: More than Just Anti-Malware?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/get-the-scoop-teslas-robotaxi-initiative-specs-and-rumored-release-will-it-revolutionize-commuting/"><u>Get the Scoop! Tesla’s Robotaxi Initiative, Specs, and Rumored Release - Will It Revolutionize Commuting?</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/mastering-privacy-controls-a-step-by-step-guide-on-adjusting-windows/"><u>Mastering Privacy Controls: A Step-by-Step Guide on Adjusting Windows</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcome-cod-vanguard-hurdles-your-ultimate-guide-to-fixing-error-code-0x00001338/"><u>Overcome CoD Vanguard Hurdles: Your Ultimate Guide to Fixing Error Code 0X00001338</u></a></li>
+<li><a href="https://win-dash.techidaily.com/private-markets-often-fail-to-provide-public-goods-at-optimal-levels-due-to-difficulties-in-charging-users-directly/"><u>Private Markets Often Fail to Provide Public Goods at Optimal Levels Due to Difficulties in Charging Users Directly.</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-loadlibrary-error-87-in-windows/"><u>Resolving LoadLibrary Error 87 in Windows</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/the-epic-faceoff-controllers-vs-digital-vinyl-systems-for-modern-djs-tech-edge-unveiled/"><u>The Epic Faceoff: Controllers Vs. Digital Vinyl Systems for Modern DJs | Tech Edge Unveiled</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/yl-computings-insights-navigating-to-and-tweaking-the-settings-of-your-pcs-security-firewall-through-control-panel/"><u>YL Computing's Insights: Navigating to and Tweaking the Settings of Your PC's Security Firewall Through Control Panel</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering DJ Programming: Crafting Personalized DEX 3 Scripts Using PCDJ Documentation and Tutorials"
-date: 2024-11-29T04:23:47.871Z
-updated: 2024-11-30T23:31:12.523Z
+date: 2024-12-06T07:06:23.621Z
+updated: 2024-12-09T08:46:21.154Z
 tags:
   - product
 categories:
@@ -30,7 +30,7 @@ DEX 3 and RED Mobile 3 Default DJ Controller scripts are stored in: App folder (
 [Download DEX 3 Actions And Notifications Documentation](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -52,20 +52,14 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2015/04/scripting-coverimage.jpg?f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-crafting-engaging-dialogue-in-screenplays-for-2024/"><u>[New] Crafting Engaging Dialogue in Screenplays for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-turn-every-instagram-moment-into-a-shareable-mp4-file/"><u>[New] In 2024, Turn Every Instagram Moment Into a Shareable MP4 File</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-essential-call-customization-applications-ranked/"><u>[Updated] In 2024, Essential Call Customization Applications Ranked</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-expertise-essentials-removing-unwanted-backdrops-with-canva/"><u>2024 Approved Expertise Essentials Removing Unwanted Backdrops with Canva</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/5ash5lu95lu75yqh57ut5p2f5zco5ywz6zet6k6h566x5py655qe5pa55rov/"><u>备份任务结束后关闭计算机的方法</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/actualizacion-integral-del-sistema-como-instalar-y-formatear-con-windows-11/"><u>Actualización Integral Del Sistema: Cómo Instalar Y Formatear Con Windows 11</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/efficient-automatic-file-migration-with-robocopy-and-windows-task-scheduler/"><u>Efficient Automatic File Migration with Robocopy & Windows Task Scheduler</u></a></li>
-<li><a href="https://win-top.techidaily.com/effortless-fixes-for-overcoming-windows-backup-error-0x8100002f-with-simple-steps/"><u>Effortless Fixes for Overcoming Windows Backup Error 0X8100002F with Simple Steps</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/guide-rapide-creation-dun-nouveau-comptoir-localise-sur-windows-11-trois-solutions-faciles-a-suivre/"><u>Guide Rapide: Création D'un Nouveau Comptoir Localisé Sur Windows 11 (Trois Solutions Faciles À Suivre)</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/hoe-je-uit-het-ogenblik-vergeten-item-terugkrijgt-kan-zijn-vier-mogelijke-weges/"><u>Hoe Je Uit Het Ogenblik Vergeten Item Terugkrijgt Kan Zijn - Vier Mogelijke Weges</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-earning-potential-for-videos-amassing-1-million-views/"><u>In 2024, Earning Potential for Videos Amassing 1 Million Views</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-music-making-magic-selecting-background-beats-for-vids/"><u>In 2024, Music Making Magic Selecting Background Beats for Vids</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/in-depth-guide-for-transferring-pst-files-by-an-office-365-admin/"><u>In-Depth Guide for Transferring PST Files by an Office 365 Admin</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/soluciones-innovadoras-al-problema-del-reinicio-no-concluido-en-windows-10-6-soluciones/"><u>Soluciones Innovadoras Al Problema Del Reinicio No Concluido en Windows 10 (6 Soluciones)</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/step-by-step-solutions-for-warzone-not-starting-properly/"><u>Step-by-Step Solutions for 'Warzone Not Starting Properly'</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-boost-channels-to-partner-status-in-under-90-days-start-now/"><u>[New] 2024 Approved Boost Channels to Partner Status in Under 90 Days, Start Now</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/control-panel-mastery-tweaking-your-network-configuration-effortlessly-with-tips-from-yl-computing/"><u>Control Panel Mastery: Tweaking Your Network Configuration Effortlessly with Tips From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/decoding-different-types-of-pc-hardware-incompatibility-in-windows-environments-expert-analysis-from-yl-software/"><u>Decoding Different Types of PC Hardware Incompatibility in Windows Environments - Expert Analysis From YL Software</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/expand-your-sing-along-library-185-fresh-tracks-enhance-partytyme-with-karaoke-pass/"><u>Expand Your Sing-Along Library: 185 Fresh Tracks Enhance PartyTyme with Karaoke Pass</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-mojangs-minecraft-crashes-caused-by-outdated-graphics-drivers-in-windows/"><u>How to Fix Mojang's Minecraft Crashes Caused by Outdated Graphics Drivers in Windows</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/is-your-laptops-graphics-card-malfunction-the-reason-behind-frequent-bsod-errors-insights-by-yl-computing/"><u>Is Your Laptop's Graphics Card Malfunction the Reason Behind Frequent BSOD Errors? - Insights by YL Computing</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/scripted-escapades-your-path-to-interactive-storytelling/"><u>Scripted Escapades: Your Path to Interactive Storytelling</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-viewing-the-complete-indiana-jones-adventures-sequentially/"><u>The Ultimate Guide: Viewing The Complete Indiana Jones Adventures Sequentially</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-dslr-cameras-enhancing-real-time-online-interactions-for-2024/"><u>Top 7 DSLR Cameras Enhancing Real-Time Online Interactions for 2024</u></a></li>
 </ul></div>
 

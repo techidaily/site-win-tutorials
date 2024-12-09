@@ -1,7 +1,7 @@
 ---
 title: "Download the Latest DEX 3.6 (RC2): Premium Video Mixer by Pioneer - Now Available!"
-date: 2024-11-27T02:42:09.696Z
-updated: 2024-11-30T18:28:40.830Z
+date: 2024-12-05T09:52:20.755Z
+updated: 2024-12-08T16:15:03.810Z
 tags:
   - product
 categories:
@@ -59,7 +59,7 @@ Since this is likely going to be the official DEX 3 **DJ and Video Mixing softwa
 _If you have any questions or problems running the DEX 3.6 **VDJ Software** beta version please post to the [DEX 3 user forum](https://tools.techidaily.com/pcdj/products/)._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -81,21 +81,22 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-rc2-coverimage.jpg?f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-breaking-down-lgs-360-camera-updates-and-features/"><u>[Updated] 2024 Approved Breaking Down LG's 360 Camera Updates & Features</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-maintain-youtube-session-in-the-background/"><u>[Updated] 2024 Approved How to Maintain YouTube Session in the Background</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-building-an-intriguing-vlog-conversation-guide/"><u>[Updated] Building an Intriguing Vlog Conversation Guide</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-preserving-your-nintendo-switch-experiences-a-guide/"><u>[Updated] In 2024, Preserving Your Nintendo Switch Experiences A Guide</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-wintvcapture-learn-the-art-of-free-screen-recording/"><u>2024 Approved WinTVCapture Learn the Art of Free Screen Recording</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/ajout-gratuit-de-sauvegarde-pour-ordinateur-et-stockage-cloud-sur-windows-version-11-10-8-ou-7/"><u>Ajout Gratuit De Sauvegarde Pour Ordinateur Et Stockage Cloud Sur Windows (Version 11, 10, 8 Ou 7)</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/guide-to-restoring-erased-data-using-the-autopsy-forensic-tool/"><u>Guide to Restoring Erased Data Using the Autopsy Forensic Tool</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/how-to-restore-accidentally-deleted-partitions-on-your-pc-using-windows-11/"><u>How to Restore Accidentally Deleted Partitions on Your PC Using Windows 11</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-engaging-viewers-with-personalized-vimeo-end-screens/"><u>In 2024, Engaging Viewers with Personalized Vimeo End Screens</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-ultimate-guide-top-15-innovative-snapchat-ideas/"><u>In 2024, The Ultimate Guide Top 15 Innovative Snapchat Ideas</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/resolution-des-problemes-de-secteur-inaccessible-et-message-derreur-parametre-incorrect/"><u>Résolution Des Problèmes De Secteur Inaccessible Et Message D'Erreur 'Paramètre Incorrect'</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/schnelle-und-effiziente-datentransfermoglichkeiten-von-ihrem-pc-zu-einem-usb-stick-entdecken-der-4-besten-wege/"><u>Schnelle Und Effiziente Datentransfermöglichkeiten Von Ihrem PC Zu Einem USB-Stick – Entdecken Der 4 Besten Wege!</u></a></li>
-<li><a href="https://games-able.techidaily.com/steams-special-blessings-customized-video-games/"><u>Steam's Special Blessings: Customized Video Games</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/top-3-metodos-para-realizar-una-respaldo-de-pc-en-windows-11/"><u>Top 3 Métodos Para Realizar Una Respaldo De PC en Windows 11</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-rated-antivirus-solutions-of-2024-expert-reviews-from-zdnet/"><u>Top-Rated Antivirus Solutions of 2024 - Expert Reviews From ZDNet</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/wie-sie-ihre-gmail-nachrichten-sicher-verpacken-eine-schrittweise-anleitung-zur-konvertierung-in-pst-format/"><u>Wie Sie Ihre Gmail-Nachrichten Sicher Verpacken - Eine Schrittweise Anleitung Zur Konvertierung in PST-Format</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-get-rid-of-youtube-distractions-ad-blocking-on-chrome-firefox-and-ios/"><u>[New] 2024 Approved Get Rid of YouTube Distractions Ad-Blocking on Chrome, Firefox & iOS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ixelsculptor-suite/"><u>[New] PixelSculptor Suite</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-ideal-apps-for-editing-and-mixing-dji-video-tapes/"><u>[Updated] Ideal Apps for Editing and Mixing DJi Video Tapes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-lens-focus-techniques-for-storify-success-for-2024/"><u>[Updated] Mastering the Lens Focus Techniques for Storify Success for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/5-must-know-fixes-to-avoid-darkness-on-game-capture-by-obs/"><u>5 Must-Know Fixes to Avoid Darkness on Game Capture by OBS</u></a></li>
+<li><a href="https://android-frp.techidaily.com/best-gionee-frp-bypass-guide-by-drfone-android/"><u>Best Gionee FRP Bypass Guide</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/did-your-iphone-13-pro-max-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your iPhone 13 Pro Max Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/enhancing-system-performance-do-you-need-specialized-software-tools/"><u>Enhancing System Performance: Do You Need Specialized Software Tools?</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-to-fix-a-broken-computer-power-supply-expert-tips-from-yl-computing/"><u>How to Fix a Broken Computer Power Supply: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-oppo-a78-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Oppo A78 5G Quickly? | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-to-resolve-system-failure-during-graphics-card-driver-update-a-guide-by-yl-computing/"><u>How to Resolve System Failure During Graphics Card Driver Update - A Guide by YL Computing</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-10-stabilizing-tech-for-youtube-creators-success/"><u>In 2024, Top 10 Stabilizing Tech for YouTube Creators' Success</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/master-your-alerts-essential-techniques-to-control-notifications-in-windows-11-by-yl-software-experts/"><u>Master Your Alerts: Essential Techniques to Control Notifications in Windows 11 by YL Software Experts</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/stunning-january-2022-desktop-wallpapers-and-themes-by-yl-computing-your-ultimate-digital-canvas/"><u>Stunning January 2022 Desktop Wallpapers & Themes by YL Computing - Your Ultimate Digital Canvas</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/ultimate-guide-maximizing-your-security-with-windows-defender-tips-and-tricks-from-yl-computing/"><u>Ultimate Guide: Maximizing Your Security with Windows Defender - Tips & Tricks From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/ultra-high-definition-wildlife-art-king-of-the-jungle-tiger-graphics-compatible-with-pcs-tablets-and-smartphones-by-yl-software/"><u>Ultra-High Definition Wildlife Art: King of the Jungle Tiger Graphics - Compatible with PCs, Tablets & Smartphones by YL Software</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/yl-expertise-on-smooth-network-hardware-integration-and-installation-procedures/"><u>YL Expertise on Smooth Network Hardware Integration and Installation Procedures</u></a></li>
 </ul></div>
 
