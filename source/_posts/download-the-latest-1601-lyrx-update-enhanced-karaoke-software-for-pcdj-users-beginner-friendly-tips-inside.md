@@ -1,7 +1,7 @@
 ---
 title: Download the Latest 1.6.0.1 LYRX Update – Enhanced Karaoke Software for PCDJ Users | Beginner-Friendly Tips Inside
-date: 2024-12-07T03:12:01.953Z
-updated: 2024-12-08T23:49:39.101Z
+date: 2024-12-09T16:03:48.511Z
+updated: 2024-12-15T16:03:11.488Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/7d541f24f083a78654b60cdafb0ff977b1be425e9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.1 of LYRX karaoke software is available for download.
@@ -33,7 +33,7 @@ Again, we appreciate all the assistance and feedback we’ve received from LYRX 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a fully-functional free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.1
@@ -55,7 +55,7 @@ If you still can’t access any audio from the inputs follow these steps:
 _Have questions about the latest 1.6.0.1 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -77,22 +77,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover.jpg?fit=1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/updated-lightroom-guide-blending-high-dynamic-range-magic/"><u>[Updated] Lightroom Guide Blending High Dynamic Range Magic</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/1-vibrant-skull-themed-wallpaper-and-image-collections-exclusive-offer-by-yl-computing/"><u>1. Vibrant Skull-Themed Wallpaper & Image Collections: Exclusive Offer by YL Computing</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-comprehensive-guide-to-vsco-image-enhancement/"><u>2024 Approved Comprehensive Guide to VSCO Image Enhancement</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/choosing-and-associating-your-favorite-programs-for-file-access-in-microsoft-windows-step-by-step-tutorial/"><u>Choosing and Associating Your Favorite Programs for File Access in Microsoft Windows: Step-by-Step Tutorial</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/dwayne-the-rock-johnson-film-scenes-and-posters-high-quality-downloads-by-yl-software/"><u>Dwayne 'The Rock' Johnson Film Scenes & Posters: High-Quality Downloads by YL Software</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/fix-common-glitches-in-microsoft-office-for-windows-a-guide-by-yl-software-experts/"><u>Fix Common Glitches in Microsoft Office for Windows: A Guide by YL Software Experts</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-error-0xc1e1-in-windows-10-quick-troubleshooting-tips/"><u>Fixing 'Error 0Xc1e1' In Windows 10 – Quick Troubleshooting Tips</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on ZTE Axon 40 Lite | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-infinix-smart-8-plus-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Infinix Smart 8 Plus Phone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-profitability-blueprint-determining-key-view-counts/"><u>In 2024, YouTube Profitability Blueprint Determining Key View Counts</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Lava Blaze 2 5G | Dr.fone</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/setting-up-any-new-printer-with-simple-instructions-from-yl-software/"><u>Setting Up Any New Printer with Simple Instructions From YL Software</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/step-by-step-tutorial-for-successfully-copying-data-from-ide-or-sata-hard-drives-with-leading-cloning-software-tools/"><u>Step-by-Step Tutorial for Successfully Copying Data From IDE or SATA Hard Drives with Leading Cloning Software Tools</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/stunning-anime-feline-character-wallpapers-hd-images-and-free-downloads/"><u>Stunning Anime Feline Character Wallpapers - HD Images & Free Downloads</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/ultimate-guide-to-share-your-igtv-story-with-ease-for-2024/"><u>Ultimate Guide to Share Your IGTV Story with Ease for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/unveiling-the-origins-of-the-iconic-silk-road-by-yl-software-pioneers-in-technological-advancements/"><u>Unveiling the Origins of the Iconic Silk Road by YL Software - Pioneers in Technological Advancements</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/yl-software-unveils-secrets-to-boost-your-computers-speed-and-performance/"><u>YL Software Unveils Secrets to Boost Your Computer's Speed and Performance</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-instantaneous-screen-logger-for-chrome/"><u>[New] 2024 Approved Instantaneous Screen Logger for Chrome</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lite-media-maestro-picture-perfect-with-pitches-for-2024/"><u>[New] Elite Media Maestro Picture Perfect with Pitches for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-ensuring-accessibility-and-seo-with-responsive-design/"><u>2024 Approved Ensuring Accessibility and SEO with Responsive Design</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/accelerating-your-pcs-internet-performance-expert-tips-and-techniques-yl-computing/"><u>Accelerating Your PC's Internet Performance: Expert Tips & Techniques - YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/effective-strategies-for-identifying-and-repairing-pc-hardware-problems-on-your-windows-system-insights-by-yl-computing/"><u>Effective Strategies for Identifying & Repairing PC Hardware Problems on Your Windows System - Insights by YL Computing</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expert-insights-on-the-all-inclusive-linksys-ac1900-max-stream-wireless-router-a-comprehensive-review/"><u>Expert Insights on the All-Inclusive Linksys AC1900 Max-Stream Wireless Router – A Comprehensive Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/expertly-remove-items-from-iphone-photo-with-top-6-apps-for-2024/"><u>Expertly Remove Items From iPhone Photo with Top 6 Apps for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/financial-frontiers-unveiling-pewdiepies-income-graph-for-2024/"><u>Financial Frontiers Unveiling PewDiePie's Income Graph for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-well-does-windows-defender-protect-against-cybersecurity-risks-expert-advice-from-yl-software/"><u>How Well Does Windows Defender Protect Against Cybersecurity Risks? - Expert Advice From YL Software</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-step-by-step-guide-to-perfecting-slow-motion-on-your-android-device/"><u>In 2024, Step-by-Step Guide to Perfecting Slow Motion on Your Android Device</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/is-windows-defender-proactive-in-detecting-cybersecurity-risks-explore-the-features-with-yl-computing/"><u>Is Windows Defender Proactive in Detecting Cybersecurity Risks? Explore the Features with YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/secure-your-crypto-holdings-expert-tips-from-yl-software/"><u>Secure Your Crypto Holdings: Expert Tips From YL Software</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-updating-graphics-card-drivers-on-windows-tips-from-yl-computing/"><u>Step-by-Step Guide: Updating Graphics Card Drivers on Windows - Tips From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/stop-the-heatwave-effective-ways-to-cool-down-your-laptop-by-yl-software-experts/"><u>Stop the Heatwave: Effective Ways to Cool Down Your Laptop by YL Software Experts</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-honor-x50-gt-by-fonelab-android-recover-data/"><u>The way to get back lost data from Honor X50 GT</u></a></li>
+<li><a href="https://win-hot.techidaily.com/understanding-windows-defenders-role-in-system-protection-a-guide-from-yl-software-experts/"><u>Understanding Windows Defender's Role in System Protection - A Guide From YL Software Experts</u></a></li>
 </ul></div>
 
