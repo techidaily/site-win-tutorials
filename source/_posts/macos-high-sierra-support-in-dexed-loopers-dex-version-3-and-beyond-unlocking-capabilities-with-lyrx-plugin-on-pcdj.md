@@ -1,7 +1,7 @@
 ---
 title: "MacOS High Sierra Support in Dexed Loopers (DEX) Version 3 and Beyond: Unlocking Capabilities with LYRX Plugin on PCDJ"
-date: 2024-12-13T16:00:27.730Z
-updated: 2024-12-15T16:02:57.769Z
+date: 2024-12-18T07:16:24.555Z
+updated: 2024-12-23T23:30:10.157Z
 tags:
   - product
 categories:
@@ -36,7 +36,7 @@ Elevate your DJ game with [DEX 3](https://tools.techidaily.com/pcdj/products/) o
 _**PCDJ enables you to #MixEverything**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -58,21 +58,17 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/09/macoshighsierra-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-earnings-demystified-youtube-shorts-revenue-split-explained/"><u>[Updated] 2024 Approved Earnings Demystified YouTube Shorts Revenue Split Explained</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-pro-video-and-photography-harnessing-the-power-of-hero5-black/"><u>[Updated] 2024 Approved Pro Video & Photography Harnessing the Power of Hero5 Black</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/aws-graviton4-cpu-shows-superiority-over-traditional-processors-offering-enhanced-speed-and-value-for-money/"><u>AWS Graviton4 CPU Shows Superiority Over Traditional Processors, Offering Enhanced Speed and Value for Money</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/celebrate-the-season-with-vibrant-thanksgiving-imagery-and-backgrounds-from-yl-software/"><u>Celebrate the Season with Vibrant Thanksgiving Imagery and Backgrounds From YL Software</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/ensuring-your-ram-matches-your-motherboard-a-guide-from-yl-technology-experts/"><u>Ensuring Your RAM Matches Your Motherboard: A Guide From YL Technology Experts</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/essentials-of-drafting-engaging-vlogger-speeches/"><u>Essentials of Drafting Engaging Vlogger Speeches</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/high-quality-pubg-graphics-hd-walls-and-screensaver-visuals-from-yl-computings-design-studio/"><u>High-Quality PUBG Graphics: HD Walls and Screensaver Visuals From YL Computing's Design Studio</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-the-runners-digital-dream-top-virtual-reality-walkers/"><u>In 2024, The Runner's Digital Dream Top Virtual Reality Walkers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/mastering-live-video-recovery-on-facebook-2023-edition-for-2024/"><u>Mastering Live Video Recovery on Facebook, 2023 Edition for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/maximize-your-computers-safety-a-guide-to-fine-tuning-windows-defender-by-yl-software-experts/"><u>Maximize Your Computer's Safety: A Guide to Fine-Tuning Windows Defender by YL Software Experts</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/navigating-through-windows-power-plan-options-for-optimal-performance-and-efficiency-yl-software/"><u>Navigating Through Windows Power Plan Options for Optimal Performance and Efficiency - YL Software</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/prime-selection-instagrams-top-8-ae-designs/"><u>Prime Selection Instagram's Top 8 AE Designs</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/resolving-driver-conflicts-in-windows-systems-expert-tips-from-yl-computing/"><u>Resolving Driver Conflicts in Windows Systems: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/secure-total-visual-display/"><u>Secure Total Visual Display</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-to-checking-your-computers-power-unit-tips-by-yl-software-professionals/"><u>Step-by-Step Guide to Checking Your Computer’s Power Unit: Tips by YL Software Professionals</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/swift-strategies-mastering-shader-optimization-challenges-in-star-wars-battlefront-ii/"><u>Swift Strategies: Mastering Shader Optimization Challenges in Star Wars Battlefront II</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-charting-financial-success-the-tale-of-ajey-carryminati-and-youtube/"><u>[New] In 2024, Charting Financial Success The Tale of Ajey (CarryMinati) and YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-power-of-language-20-words-and-phrases-that-transform-your-marketing/"><u>[New] The Power of Language 20 Words and Phrases That Transform Your Marketing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-memetic-innovations-ideas-that-delight-any-audience/"><u>[Updated] 2024 Approved Memetic Innovations Ideas That Delight Any Audience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-cutting-edge-techniques-for-resolving-youtube-short-issues/"><u>[Updated] Cutting-Edge Techniques for Resolving YouTube Short Issues</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/guide-finding-and-modifying-network-adapter-power-options-in-windows-tips-from-yl-computing/"><u>Guide: Finding and Modifying Network Adapter Power Options in Windows - Tips From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-can-i-accelerate-a-sluggish-broadband-connection-tips-from-yl-computing/"><u>How Can I Accelerate a Sluggish Broadband Connection? - Tips From YL Computing</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1723808344486-how-to-split-screen-on-ipad-benefit-from-multitasking/"><u>How to Split Screen on iPad - Benefit From Multitasking</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/mastering-the-capture-of-your-roblox-adventures-compatible-with-windows-mac-ipad-and-more/"><u>Mastering the Capture of Your Roblox Adventures - Compatible with Windows, Mac, iPad and More</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/navigating-social-media-streams-iphone-and-android-best-practices-for-2024/"><u>Navigating Social Media Streams IPhone & Android Best Practices for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/quick-start-guide-crafting-windows-desktop-shortcuts-for-faster-navigation-digitalsolutions/"><u>Quick Start Guide: Crafting Windows Desktop Shortcuts for Faster Navigation - DigitalSolutions</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/resetting-your-scanner-step-by-step-guide-to-revert-to-factory-settings/"><u>Resetting Your Scanner: Step-by-Step Guide to Revert to Factory Settings</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/top-tips-and-techniques-for-efficiently-maintaining-your-windows-10-system-expert-insights-from-yl-computing/"><u>Top Tips and Techniques for Efficiently Maintaining Your Windows 10 System - Expert Insights From YL Computing</u></a></li>
 </ul></div>
 

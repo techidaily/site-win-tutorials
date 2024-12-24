@@ -1,7 +1,7 @@
 ---
 title: 3 Demo Player
-date: 2024-12-14T16:05:29.226Z
-updated: 2024-12-15T16:01:03.240Z
+date: 2024-12-21T04:32:38.771Z
+updated: 2024-12-24T13:06:51.276Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,15 +46,20 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-complete-reference-for-navigating-telegram-web-applications-for-2024/"><u>[New] Complete Reference for Navigating Telegram Web Applications for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-high-end-uavs-purchase-without-delay-for-2024/"><u>[New] High-End UAVs Purchase Without Delay for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-low-end-pc-visual-data-harvesters/"><u>[Updated] In 2024, Low-End PC Visual Data Harvesters</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/1-troubleshooting-guide-how-to-fix-a-malfunctioning-sound-card-expert-advice-from-yl-computing/"><u>1. Troubleshooting Guide: How To Fix A Malfunctioning Sound Card - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/expert-review-the-versatile-and-affordable-dell-g5-5090-your-gateway-to-high-performance-gaming/"><u>Expert Review: The Versatile and Affordable Dell G5 5090, Your Gateway to High-Performance Gaming</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/identifying-a-defective-graphics-card-expert-insights-from-yl-computing/"><u>Identifying a Defective Graphics Card: Expert Insights From YL Computing</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-narakeet-review-convenient-text-to-speech-voice-maker/"><u>New 2024 Approved Narakeet Review Convenient Text to Speech Voice Maker</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/setting-up-a-fresh-user-profile-with-yl-computing-a-step-by-step-guide/"><u>Setting Up a Fresh User Profile with YL Computing - A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/solutions-for-incorrect-graphics-performance-get-expert-advice-from-yl-computings-tech-specialists/"><u>Solutions for Incorrect Graphics Performance - Get Expert Advice From YL Computing's Tech Specialists</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-from-your-apple-iphone-se-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud From your Apple iPhone SE</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-how-to-downgrade-or-rollback-the-macos-sierra-to-os-x-el-capitan/"><u>[New] 2024 Approved How To Downgrade Or Rollback The macOs Sierra To Os X El Capitan</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-engaging-vlogger-subjects-each-day-for-2024/"><u>[New] Engaging Vlogger Subjects Each Day for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unlocking-ig-potential-strategies-for-accumulating-1000plus-likesmonth/"><u>[New] In 2024, Unlocking IG Potential Strategies for Accumulating 1,000+ Likes/Month</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/captivating-olga-kurylenko-hd-image-collection-premium-photo-backgrounds-and-wallpapers-from-yl-software/"><u>Captivating Olga Kurylenko HD Image Collection - Premium Photo Backgrounds and Wallpapers From YL Software</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/discover-the-enhanced-cloud-pro-features-in-pcdjs-new-what-i-love-about-you-karaoke-package/"><u>Discover the Enhanced Cloud Pro Features in PCDJ's 'New What I Love About You' Karaoke Package</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/enhancing-your-pcs-efficiency-top-techniques-insights-from-yl-computing/"><u>Enhancing Your PC's Efficiency: Top Techniques - Insights From YL Computing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-t-mobile-apple-iphone-6s-online-without-sim-card-by-drfone-ios/"><u>How to Unlock T-Mobile Apple iPhone 6s online without SIM Card?</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/is-it-time-for-a-ram-upgrade-expert-tips-by-yl-software/"><u>Is It Time for a RAM Upgrade? Expert Tips by YL Software</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/master-your-file-management-how-to-set-up-new-folders-on-windows-pcs-with-yl-software-solutions/"><u>Master Your File Management: How To Set Up New Folders on Windows PCs with YL Software Solutions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-pc-boot-issues-effective-solutions-for-post-failures/"><u>Resolving PC Boot Issues: Effective Solutions for POST Failures</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/solving-slow-download-issues-with-simple-tips-insights-by-yl-software-specialists/"><u>Solving Slow Download Issues with Simple Tips - Insights by YL Software Specialists</u></a></li>
+<li><a href="https://games-able.techidaily.com/step-by-step-guide-to-mastering-ryujinxs-emulation-controls/"><u>Step-by-Step Guide to Mastering Ryujinx's Emulation Controls</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-monitoring-and-assessing-your-computers-cpu-heat-levels-with-yl-solutions/"><u>Step-by-Step Guide: Monitoring and Assessing Your Computer's CPU Heat Levels with YL Solutions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/the-role-of-the-control-panel-in-windows-11-operating-system-explained-by-yl-systems/"><u>The Role of the Control Panel in Windows 11 Operating System Explained by YL Systems</u></a></li>
 </ul></div>
 
