@@ -1,7 +1,7 @@
 ---
 title: Download the Latest 1.6.0.1 LYRX Update – Enhanced Karaoke Software for PCDJ Users | Beginner-Friendly Tips Inside
-date: 2024-12-22T06:19:52.560Z
-updated: 2024-12-23T16:50:59.057Z
+date: 2024-12-22T17:38:23.274Z
+updated: 2024-12-29T22:37:56.150Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/7d541f24f083a78654b60cdafb0ff977b1be425e9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.1 of LYRX karaoke software is available for download.
@@ -33,7 +33,7 @@ Again, we appreciate all the assistance and feedback we’ve received from LYRX 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a fully-functional free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.1
@@ -55,7 +55,7 @@ If you still can’t access any audio from the inputs follow these steps:
 _Have questions about the latest 1.6.0.1 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -77,24 +77,20 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover.jpg?fit=1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ow-to-extract-thumbnails-from-youtube-on-windowsmac-and-browsers-for-2024/"><u>[New] How to Extract Thumbnails From Youtube on Windows/Mac and Browsers for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-macs-visionary-picks-the-10-elite-monitors-with-4k/"><u>[New] In 2024, Mac's Visionary Picks The #10 Elite Monitors with 4K</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-wondershare-photo-story-platinum/"><u>[Updated] Wondershare Photo Story Platinum</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/best-8-high-performance-screenshots-for-2024/"><u>Best 8 High-Performance Screenshots for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-lava-agni-2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Lava Agni 2 5G | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/enhancing-rom-experience-with-translated-patches/"><u>Enhancing Rom Experience with Translated Patches</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/exploring-available-configurations-an-in-depth-guide-to-control-panel-settings-by-yl-computing/"><u>Exploring Available Configurations: An In-Depth Guide to Control Panel Settings by YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/how-can-you-personalize-your-start-menu-on-windows-10-expert-tips-by-yl-computing/"><u>How Can You Personalize Your Start Menu on Windows 10? - Expert Tips by YL Computing</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-efficient-recording-capture-your-dell-display-swiftly/"><u>In 2024, Efficient Recording Capture Your Dell Display Swiftly</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-is-your-iphone-7-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>In 2024, Is Your iPhone 7 in Security Lockout? Proper Ways To Unlock</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-unlocking-the-secret-of-hashtags-for-six-figures/"><u>In 2024, Unlocking the Secret of #Hashtags for Six Figures</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/methods-to-accurately-measure-your-pcs-cpu-temperature-tech-insights-by-yl/"><u>Methods to Accurately Measure Your PC's CPU Temperature - Tech Insights by YL</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/pioneer-dj-systems-upgrade-deck-sets-with-ddj-rb-ddj-rr-and-enhanced-compatibility-for-djs/"><u>Pioneer DJ Systems Upgrade: Deck Sets with DDJ-RB, DDJ-RR, and Enhanced Compatibility for DJs</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/track-and-monitor-weth-balances-with-our-user-friendly-ethereum-wallet-tracker-discover-insights-from-yl-computings-innovative-solution/"><u>Track & Monitor WETH Balances with Our User-Friendly Ethereum Wallet Tracker - Discover Insights From YL Computing's Innovative Solution</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/troubleshooting-no-network-detection-on-your-wi-fi-adapter-expert-tips-by-yl-computing/"><u>Troubleshooting No-Network Detection on Your Wi-Fi Adapter - Expert Tips by YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/troubleshooting-unpredictable-system-hangs-with-help-from-yl-software-experts/"><u>Troubleshooting Unpredictable System Hangs with Help From YL Software Experts</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unleashing-your-potential-in-writing-and-creativity-using-chatgpt-techniques/"><u>Unleashing Your Potential in Writing & Creativity Using ChatGPT Techniques</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/updating-made-simple-finding-and-installing-windows-10-patches-with-yl-software-insights/"><u>Updating Made Simple: Finding and Installing Windows 10 Patches with YL Software Insights</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/witness-the-cosmos-come-to-life-with-yl-softwares-stunning-hd-big-bang-background-and-endless-loop-videos/"><u>Witness the Cosmos Come to Life with YL Software's Stunning HD Big Bang Background and Endless Loop Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-permitted-practices-for-saving-youtube-videos/"><u>[New] 2024 Approved Permitted Practices for Saving YouTube Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-quick-start-guide-to-setup-and-use-obs-on-apple-systems-for-2024/"><u>[New] Quick Start Guide to Setup and Use OBS on Apple Systems for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-snapshots-of-life-compreenasive-guide-to-capturing-the-journey-of-playing-sims-4-for-2024/"><u>[New] Snapshots of Life Compreenasive Guide to Capturing the Journey of Playing Sims 4 for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-capturing-games-a-guide-to-options-other-than-game-bar-for-2024/"><u>[Updated] Capturing Games A Guide to Options Other Than Game Bar for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-muting-unwanted-noise-obs-audio-solution-for-2024/"><u>[Updated] Muting Unwanted Noise OBS Audio Solution for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/configuring-antivirus-and-firewall-options-through-your-pcs-control-panel-expert-advice-from-cybersecure-solutions/"><u>Configuring Antivirus and Firewall Options Through Your PC's Control Panel - Expert Advice From CyberSecure Solutions</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/easy-steps-for-upgrading-your-graphic-card-drivers-on-pcs-with-windows-expert-advice-from-yl-computing-software-team/"><u>Easy Steps for Upgrading Your Graphic Card Drivers on PCs with Windows - Expert Advice From YL Computing Software Team</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/guide-navigating-to-device-manager-from-control-panel-on-your-pc-with-yl-software-help/"><u>Guide: Navigating to Device Manager From Control Panel on Your PC with YL Software Help</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/hp-d1360-printer-setup-failure-in-multiple-windows-versions/"><u>HP D1360 Printer Setup Failure in Multiple Windows Versions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-tailored-macos-tutorials-for-editing-srt-files/"><u>In 2024, Tailored macOS Tutorials for Editing SRT Files</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-honor-x9b-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Honor X9b for Streaming | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/realistic-flaming-motion-wallpaper-in-high-definition-1080p-seamless-loop-by-yl-computing/"><u>Realistic Flaming Motion Wallpaper in High Definition - 1080P Seamless Loop by YL Computing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-guide-to-itunes-video-downloading-for-ios-users/"><u>The Ultimate Guide to iTunes Video Downloading for iOS Users</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/thor-love-and-thunder-stunning-wallpapers-and-backgrounds-by-yl-computing/"><u>Thor: Love & Thunder - Stunning Wallpapers & Backgrounds by YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/yl-software-tips-maximizing-battery-life-with-power-saving-mode/"><u>YL Software Tips: Maximizing Battery Life with Power Saving Mode</u></a></li>
 </ul></div>
 

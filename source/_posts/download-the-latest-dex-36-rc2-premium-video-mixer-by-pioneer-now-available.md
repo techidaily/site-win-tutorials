@@ -1,7 +1,7 @@
 ---
 title: "Download the Latest DEX 3.6 (RC2): Premium Video Mixer by Pioneer - Now Available!"
-date: 2024-12-22T11:09:44.640Z
-updated: 2024-12-24T10:47:24.118Z
+date: 2024-12-23T01:07:50.144Z
+updated: 2024-12-29T19:22:14.454Z
 tags:
   - product
 categories:
@@ -59,7 +59,7 @@ Since this is likely going to be the official DEX 3 **DJ and Video Mixing softwa
 _If you have any questions or problems running the DEX 3.6 **VDJ Software** beta version please post to the [DEX 3 user forum](https://tools.techidaily.com/pcdj/products/)._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -81,18 +81,20 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-rc2-coverimage.jpg?f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-diving-deep-into-lyric-video-designs-powered-by-lyric-video-maker/"><u>[New] In 2024, Diving Deep Into Lyric Video Designs, Powered by Lyric Video Maker</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-journey-to-visual-vigor-a-beginners-guidebook-for-2024/"><u>[New] Journey to Visual Vigor A Beginner's Guidebook for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-direct-encouraging-content-for-daily-living-vids/"><u>[Updated] 2024 Approved How to Direct Encouraging Content for Daily Living Vids</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/as-5-aplicacoes-essenciais-para-degustacao-de-historias-do-instagram/"><u>As 5 Aplicações Essenciais Para Degustação De Histórias Do Instagram</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/conquer-competitors-try-this-highest-rated-voice-modification-software-for-valorant/"><u>Conquer Competitors - Try This Highest-Rated Voice Modification Software for Valorant</u></a></li>
-<li><a href="https://games-able.techidaily.com/design-considerations-when-developing-signage-to-communicate-information-effectively-while-maintaining-visual-appeal/"><u>Design Considerations when Developing Signage to Communicate Information Effectively While Maintaining Visual Appeal</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/enhance-pc-efficiency-with-these-simple-tricks-to-shut-down-redundant-services-guidance-by-yl-software-experts/"><u>Enhance PC Efficiency with These Simple Tricks to Shut Down Redundant Services – Guidance by YL Software Experts</u></a></li>
-<li><a href="https://article-helps.techidaily.com/next-level-photography-smart-hdr-and-beyond/"><u>Next-Level Photography Smart HDR and Beyond</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/resolving-computer-malfunctions-essential-steps-when-your-system-freezes-according-to-yl-software-experts/"><u>Resolving Computer Malfunctions: Essential Steps When Your System Freezes, According to YL Software Experts</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/resolving-issues-with-undetected-documents-in-scanners-advice-by-yl-software-experts/"><u>Resolving Issues with Undetected Documents in Scanners - Advice by YL Software Experts</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/sing-anytime-anywhere-join-the-karaoke-cloud-pro-for-fresh-melodies-and-hit-songs/"><u>Sing Anytime, Anywhere: Join the Karaoke Cloud Pro for Fresh Melodies and Hit Songs</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/smooth-operations-for-peak-computer-functionality-expert-tips-by-yl-software-professionals/"><u>Smooth Operations for Peak Computer Functionality: Expert Tips by YL Software Professionals</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/understanding-the-causes-of-a-blurry-screen-on-your-computer-insights-from-yl-computing/"><u>Understanding the Causes of a Blurry Screen on Your Computer - Insights From YL Computing</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-direct-webcam-streaming-with-vlc/"><u>[New] 2024 Approved Direct Webcam Streaming with VLC</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-ultimate-list-of-mac-friendly-video-to-mp4-codecs-for-2024/"><u>[New] Ultimate List of Mac-Friendly Video to MP4 Codecs for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-no-lag-top-8-screen-grab-essentials/"><u>[Updated] 2024 Approved No Lag Top 8 Screen Grab Essentials</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-earning-potential-in-gaming-videos/"><u>[Updated] Earning Potential in Gaming Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-from-amateurs-to-pros-learning-audio-recording-in-audacity-for-2024/"><u>[Updated] From Amateurs to Pros Learning Audio Recording in Audacity for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-leading-5-high-quality-webcams-with-audio-support/"><u>2024 Approved Leading 5 High-Quality Webcams with Audio Support</u></a></li>
+<li><a href="https://win11.techidaily.com/1719343067302-become-a-full-screen-screenshot-expert-4-essential-tricks-for-windows/"><u>Become a Full-Screen Screenshot Expert: 4 Essential Tricks for Windows</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/discover-the-best-alternative-tablet-for-your-business-journeys-beyond-ipads-and-thinkpads/"><u>Discover the Best Alternative Tablet for Your Business Journeys - Beyond iPads & ThinkPads</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/high-definition-aston-martin-vanquish-desktop-wallpapers-and-screen-savers-download-from-yl-computing/"><u>High-Definition Aston Martin Vanquish Desktop Wallpapers & Screen Savers - Download From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-to-stream-mp4-videos-on-windows-media-player-tips-by-yl-computing/"><u>How to Stream .MP4 Videos on Windows Media Player - Tips by YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/maximize-performance-expert-strategies-for-freeing-memory-on-your-computer-guidance-from-yl-software/"><u>Maximize Performance: Expert Strategies for Freeing Memory on Your Computer - Guidance From YL Software</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/premium-hd-nature-vistas-and-image-libraries-for-designers-quality-graphics-from-yl-computing/"><u>Premium HD Nature Vistas and Image Libraries for Designers - Quality Graphics From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/prevent-windows-10-from-auto-updating-step-by-step-guide-tech-solutions-by-xyz/"><u>Prevent Windows 10 From Auto-Updating: Step-by-Step Guide - Tech Solutions by XYZ</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/resolving-unexpected-blue-screen-issues-tips-and-tricks-from-yl-computing/"><u>Resolving Unexpected Blue Screen Issues: Tips & Tricks From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-updating-your-graphics-card-drivers-on-windows-tips-from-yl-computing/"><u>Step-by-Step Guide: Updating Your Graphics Card Drivers on Windows - Tips From YL Computing</u></a></li>
 </ul></div>
 

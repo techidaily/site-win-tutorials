@@ -1,7 +1,7 @@
 ---
 title: "MacOS High Sierra Support in Dexed Loopers (DEX) Version 3 and Beyond: Unlocking Capabilities with LYRX Plugin on PCDJ"
-date: 2024-12-18T07:16:24.555Z
-updated: 2024-12-23T23:30:10.157Z
+date: 2024-12-24T18:13:40.852Z
+updated: 2024-12-29T18:44:15.194Z
 tags:
   - product
 categories:
@@ -36,7 +36,7 @@ Elevate your DJ game with [DEX 3](https://tools.techidaily.com/pcdj/products/) o
 _**PCDJ enables you to #MixEverything**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -58,17 +58,16 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/09/macoshighsierra-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-charting-financial-success-the-tale-of-ajey-carryminati-and-youtube/"><u>[New] In 2024, Charting Financial Success The Tale of Ajey (CarryMinati) and YouTube</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-power-of-language-20-words-and-phrases-that-transform-your-marketing/"><u>[New] The Power of Language 20 Words and Phrases That Transform Your Marketing</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-memetic-innovations-ideas-that-delight-any-audience/"><u>[Updated] 2024 Approved Memetic Innovations Ideas That Delight Any Audience</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-cutting-edge-techniques-for-resolving-youtube-short-issues/"><u>[Updated] Cutting-Edge Techniques for Resolving YouTube Short Issues</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/guide-finding-and-modifying-network-adapter-power-options-in-windows-tips-from-yl-computing/"><u>Guide: Finding and Modifying Network Adapter Power Options in Windows - Tips From YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/how-can-i-accelerate-a-sluggish-broadband-connection-tips-from-yl-computing/"><u>How Can I Accelerate a Sluggish Broadband Connection? - Tips From YL Computing</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1723808344486-how-to-split-screen-on-ipad-benefit-from-multitasking/"><u>How to Split Screen on iPad - Benefit From Multitasking</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/mastering-the-capture-of-your-roblox-adventures-compatible-with-windows-mac-ipad-and-more/"><u>Mastering the Capture of Your Roblox Adventures - Compatible with Windows, Mac, iPad and More</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/navigating-social-media-streams-iphone-and-android-best-practices-for-2024/"><u>Navigating Social Media Streams IPhone & Android Best Practices for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/quick-start-guide-crafting-windows-desktop-shortcuts-for-faster-navigation-digitalsolutions/"><u>Quick Start Guide: Crafting Windows Desktop Shortcuts for Faster Navigation - DigitalSolutions</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/resetting-your-scanner-step-by-step-guide-to-revert-to-factory-settings/"><u>Resetting Your Scanner: Step-by-Step Guide to Revert to Factory Settings</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/top-tips-and-techniques-for-efficiently-maintaining-your-windows-10-system-expert-insights-from-yl-computing/"><u>Top Tips and Techniques for Efficiently Maintaining Your Windows 10 System - Expert Insights From YL Computing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-tailoring-your-techniques-for-itunes-videos-for-2024/"><u>[Updated] Tailoring Your Techniques for iTunes Videos for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unifying-your-digital-storytelling-via-merged-youtube-media/"><u>2024 Approved Unifying Your Digital Storytelling via Merged YouTube Media</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/building-captivating-visual-puzzles-a-mosaic-journey/"><u>Building Captivating Visual Puzzles A Mosaic Journey</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/celebrate-the-season-with-vibrant-thanksgiving-imagery-and-backgrounds-from-yl-software/"><u>Celebrate the Season with Vibrant Thanksgiving Imagery and Backgrounds From YL Software</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/ensuring-your-ram-matches-your-motherboard-a-guide-from-yl-technology-experts/"><u>Ensuring Your RAM Matches Your Motherboard: A Guide From YL Technology Experts</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-easily-switch-from-ogg-to-m4r-format-top-4-free-tools-and-websites/"><u>How To Easily Switch From OGG to M4R Format - Top 4 Free Tools & Websites</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/maximize-your-computers-safety-a-guide-to-fine-tuning-windows-defender-by-yl-software-experts/"><u>Maximize Your Computer's Safety: A Guide to Fine-Tuning Windows Defender by YL Software Experts</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/resolving-driver-conflicts-in-windows-systems-expert-tips-from-yl-computing/"><u>Resolving Driver Conflicts in Windows Systems: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-to-checking-your-computers-power-unit-tips-by-yl-software-professionals/"><u>Step-by-Step Guide to Checking Your Computer’s Power Unit: Tips by YL Software Professionals</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/streaming-showdown-is-streamlabs-or-obs-your-best-choice/"><u>Streaming Showdown Is Streamlabs or OBS Your Best Choice?</u></a></li>
 </ul></div>
 

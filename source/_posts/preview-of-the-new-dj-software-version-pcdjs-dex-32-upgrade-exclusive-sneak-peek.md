@@ -1,7 +1,7 @@
 ---
 title: "Preview of the New DJ Software Version: PCDJ's DEX 3.2 Upgrade - Exclusive Sneak Peek"
-date: 2024-12-16T21:00:34.072Z
-updated: 2024-12-23T19:23:23.670Z
+date: 2024-12-22T20:53:00.469Z
+updated: 2024-12-30T02:08:11.604Z
 tags:
   - product
 categories:
@@ -37,7 +37,7 @@ Here’s an overview of what is already set to launch in DEX 3.2, although we ma
 As always, we’ll email DEX 3 customers when the update has been published for download. Keep checking the blog for addition information and tutorials regarding new features.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -59,15 +59,16 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2014/12/dex32-blogcoverimage-templ
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-comedy-kings-and-queens-of-2023-for-2024/"><u>[New] Comedy Kings & Queens of 2023 for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-how-to-optimize-your-next-4k-camera-lens-purchase-for-2024/"><u>[New] How to Optimize Your Next 4K Camera Lens Purchase for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-dji-model-line-up-standard-advanced-masterclass-series/"><u>2024 Approved DJI Model Line-Up Standard, Advanced, Masterclass Series</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/captivating-olga-kurylenko-hd-image-collection-premium-photo-backgrounds-and-wallpapers-from-yl-software/"><u>Captivating Olga Kurylenko HD Image Collection - Premium Photo Backgrounds and Wallpapers From YL Software</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/energy-saving-tips-for-windows-11-expert-advice-from-yl-computing/"><u>Energy-Saving Tips for Windows 11: Expert Advice From YL Computing</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/essential-fixes-to-get-your-spotify-working-again-on-android-auto/"><u>Essential Fixes to Get Your Spotify Working Again on Android Auto</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/poptoons-ultimate-insight-24-annual-for-2024/"><u>PopToons Ultimate Insight '24 Annual for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-configuring-your-network-settings-via-windows-control-panel-tips-from-yl-computing/"><u>Step-by-Step Guide: Configuring Your Network Settings via Windows Control Panel - Tips From YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/the-role-of-the-control-panel-in-windows-11-operating-system-explained-by-yl-systems/"><u>The Role of the Control Panel in Windows 11 Operating System Explained by YL Systems</u></a></li>
-<li><a href="https://win-guides.techidaily.com/understanding-link-farms-a-comprehensive-guide-with-essential-seo-strategies/"><u>Understanding Link Farms: A Comprehensive Guide with Essential SEO Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-toolkit-for-elevating-your-podcast-through-seo/"><u>[New] 2024 Approved The Ultimate Toolkit for Elevating Your Podcast Through SEO</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/1-troubleshooting-guide-how-to-fix-a-malfunctioning-sound-card-expert-advice-from-yl-computing/"><u>1. Troubleshooting Guide: How To Fix A Malfunctioning Sound Card - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/faster-launch-times-strategies-to-enhance-your-pcs-initial-boot-yl-technology-insights/"><u>Faster Launch Times: Strategies to Enhance Your PC's Initial Boot - YL Technology Insights</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-itel-p55t-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Itel P55T using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/identifying-a-defective-graphics-card-expert-insights-from-yl-computing/"><u>Identifying a Defective Graphics Card: Expert Insights From YL Computing</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-we-tried-vn-video-editor-pro-heres-what-we-found-out-for-2024/"><u>New We Tried VN Video Editor Pro Heres What We Found Out for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionary-printing-speed-attained-modified-3d-printer-renders-speed-benchy-model-in-record-time/"><u>Revolutionary Printing Speed Attained: Modified 3D Printer Renders 'Speed Benchy' Model in Record Time!</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/setting-up-a-fresh-user-profile-with-yl-computing-a-step-by-step-guide/"><u>Setting Up a Fresh User Profile with YL Computing - A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-skydrive-crashes-in-simcity-buildit-2024-expert-advice/"><u>Solving SkyDrive Crashes in SimCity BuildIt: 2024 Expert Advice</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-htc-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 HTC Android SIM Unlock APK</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/yl-computings-tutorial-on-integrating-applications-into-windows-context-menu/"><u>YL Computing's Tutorial on Integrating Applications Into Windows Context Menu</u></a></li>
 </ul></div>
 

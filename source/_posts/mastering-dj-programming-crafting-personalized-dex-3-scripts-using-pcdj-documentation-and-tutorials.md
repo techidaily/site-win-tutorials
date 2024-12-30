@@ -1,7 +1,7 @@
 ---
 title: "Mastering DJ Programming: Crafting Personalized DEX 3 Scripts Using PCDJ Documentation and Tutorials"
-date: 2024-12-18T12:34:19.591Z
-updated: 2024-12-23T20:04:05.147Z
+date: 2024-12-25T02:45:55.310Z
+updated: 2024-12-29T23:08:19.016Z
 tags:
   - product
 categories:
@@ -30,7 +30,7 @@ DEX 3 and RED Mobile 3 Default DJ Controller scripts are stored in: App folder (
 [Download DEX 3 Actions And Notifications Documentation](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -52,22 +52,19 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2015/04/scripting-coverimage.jpg?f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-charting-success-understanding-youtube-insights/"><u>[New] 2024 Approved Charting Success Understanding YouTube Insights</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-multiplatform-iptv-encoding/"><u>[New] 2024 Approved Multiplatform IPTV Encoding</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-essential-guide-to-cost-free-cam-screen-recording-apps/"><u>[Updated] 2024 Approved The Essential Guide to Cost-Free Cam Screen Recording Apps</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722656085522-a-closer-look-at-apples-latest-imac-the-stunning-design-meets-the-formidable-m1-technology-reviewed-here/"><u>A Closer Look at Apple's Latest iMac - The Stunning Design Meets the Formidable M1 Technology Reviewed Here!</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/best-external-resources-and-utilities-for-streamlining-your-data-restoration-efforts-tips-from-yl-computing/"><u>Best External Resources and Utilities for Streamlining Your Data Restoration Efforts - Tips From YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/boost-your-printing-efficiency-tips-and-tricks-to-accelerate-printer-performance-insights-by-yl-computing/"><u>Boost Your Printing Efficiency: Tips and Tricks to Accelerate Printer Performance - Insights by YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/dealing-with-distorted-displays-fixing-abnormal-color-issues-on-your-screen-yl-computings-guide/"><u>Dealing with Distorted Displays: Fixing Abnormal Color Issues on Your Screen - YL Computing's Guide</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/discover-no-cost-dj-programs-with-our-comprehensive-guide/"><u>Discover No-Cost DJ Programs with Our Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/exclusive-guide-to-chat-apps-not-facebooks-messenger/"><u>Exclusive Guide to Chat Apps, Not Facebook's Messenger</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/expert-tips-for-seamless-graphics-driver-updates-with-yl-softwares-comprehensive-walkthrough/"><u>Expert Tips for Seamless Graphics Driver Updates with YL Software's Comprehensive Walkthrough</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlink-apple-id-from-apple-iphone-7-plus-by-drfone-ios/"><u>In 2024, How To Unlink Apple ID From Apple iPhone 7 Plus</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/integrating-gentle-decreases-into-your-audience-experience-via-audacity/"><u>Integrating Gentle Decreases Into Your Audience Experience via Audacity</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/macos-high-sierra-support-in-dexed-loopers-dex-version-3-and-beyond-unlocking-capabilities-with-lyrx-plugin-on-pcdj/"><u>MacOS High Sierra Support in Dexed Loopers (DEX) Version 3 and Beyond: Unlocking Capabilities with LYRX Plugin on PCDJ</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/reinstalling-your-network-adapter-drivers-made-easy-expert-tips-from-yl-computing/"><u>Reinstalling Your Network Adapter Drivers Made Easy: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/secure-and-speedy-brother-hl-3170cdw-driver-download/"><u>Secure and Speedy Brother HL-3170cdw Driver Download</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-insiders-blueprint-on-scoring-free-access-to-netflix-streams/"><u>The Insider's Blueprint on Scoring Free Access to Netflix Streams</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/yl-softwares-easy-solution-for-checking-bitcoin-sv-address-balances-the-ultimate-guide-to-cryptocurrency-tracking-with-balancechecker/"><u>YL Software's Easy Solution for Checking Bitcoin SV Address Balances - The Ultimate Guide to Cryptocurrency Tracking with BalanceChecker</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-instagram-time-keeper-learning-to-rewind/"><u>[New] 2024 Approved The Instagram Time Keeper Learning to Rewind</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-elite-batteries-and-chargers-for-black-gopro-hero5-devices-for-2024/"><u>[New] Elite Batteries & Chargers for Black GoPro Hero5 Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-crafting-timeless-videos-with-retro-filmmaking-skills/"><u>[Updated] 2024 Approved Crafting Timeless Videos with Retro Filmmaking Skills</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-adaptive-sharing-techniques-for-igtv-on-fb-for-2024/"><u>[Updated] Adaptive Sharing Techniques for IGTV on FB for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/55-dj-controllers-now-supported-pcdj/"><u>55 DJ Controllers Now Supported | PCDJ.</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/configuring-windows-firewall-made-easy-with-expert-advice-from-yl-software-team/"><u>Configuring Windows Firewall Made Easy with Expert Advice From YL Software Team</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/easily-update-your-screen-calibration-with-control-panel-adjustments-expert-hints-by-yl-software-professionals/"><u>Easily Update Your Screen Calibration with Control Panel Adjustments – Expert Hints by YL Software Professionals</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-snap-to-share-the-ultimate-guide-to-archiving-photos/"><u>From Snap to Share The Ultimate Guide to Archiving Photos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-xiaomi-redmi-note-13-proplus-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Xiaomi Redmi Note 13 Pro+ 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-11-pro-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 11 Pro Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/mastering-file-name-changes-with-yl-software-ultimate-tips-and-tricks/"><u>Mastering File Name Changes with YL Software - Ultimate Tips & Tricks</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/resolving-graphics-card-display-issues-expert-tips-from-yl-computing/"><u>Resolving Graphics Card Display Issues: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/ultra-hd-wallpapers-inspired-by-the-iconic-bugatti-chiron-premium-display-graphics-for-tech-lovers/"><u>Ultra-HD Wallpapers Inspired by the Iconic Bugatti Chiron – Premium Display Graphics for Tech Lovers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/windows-alternatives-enabling-video-calls-like-facetime/"><u>Windows Alternatives: Enabling Video Calls Like FaceTime</u></a></li>
 </ul></div>
 
