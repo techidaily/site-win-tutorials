@@ -1,7 +1,7 @@
 ---
 title: "Mastering DJ Programming: Crafting Personalized DEX 3 Scripts Using PCDJ Documentation and Tutorials"
-date: 2024-12-25T02:45:55.310Z
-updated: 2024-12-29T23:08:19.016Z
+date: 2025-01-03T19:35:31.490Z
+updated: 2025-01-09T11:04:46.040Z
 tags:
   - product
 categories:
@@ -30,7 +30,7 @@ DEX 3 and RED Mobile 3 Default DJ Controller scripts are stored in: App folder (
 [Download DEX 3 Actions And Notifications Documentation](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -52,19 +52,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2015/04/scripting-coverimage.jpg?f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-instagram-time-keeper-learning-to-rewind/"><u>[New] 2024 Approved The Instagram Time Keeper Learning to Rewind</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-elite-batteries-and-chargers-for-black-gopro-hero5-devices-for-2024/"><u>[New] Elite Batteries & Chargers for Black GoPro Hero5 Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-crafting-timeless-videos-with-retro-filmmaking-skills/"><u>[Updated] 2024 Approved Crafting Timeless Videos with Retro Filmmaking Skills</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-adaptive-sharing-techniques-for-igtv-on-fb-for-2024/"><u>[Updated] Adaptive Sharing Techniques for IGTV on FB for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/55-dj-controllers-now-supported-pcdj/"><u>55 DJ Controllers Now Supported | PCDJ.</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/configuring-windows-firewall-made-easy-with-expert-advice-from-yl-software-team/"><u>Configuring Windows Firewall Made Easy with Expert Advice From YL Software Team</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/easily-update-your-screen-calibration-with-control-panel-adjustments-expert-hints-by-yl-software-professionals/"><u>Easily Update Your Screen Calibration with Control Panel Adjustments – Expert Hints by YL Software Professionals</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/from-snap-to-share-the-ultimate-guide-to-archiving-photos/"><u>From Snap to Share The Ultimate Guide to Archiving Photos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-xiaomi-redmi-note-13-proplus-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Xiaomi Redmi Note 13 Pro+ 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-11-pro-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 11 Pro Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/mastering-file-name-changes-with-yl-software-ultimate-tips-and-tricks/"><u>Mastering File Name Changes with YL Software - Ultimate Tips & Tricks</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/resolving-graphics-card-display-issues-expert-tips-from-yl-computing/"><u>Resolving Graphics Card Display Issues: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/ultra-hd-wallpapers-inspired-by-the-iconic-bugatti-chiron-premium-display-graphics-for-tech-lovers/"><u>Ultra-HD Wallpapers Inspired by the Iconic Bugatti Chiron – Premium Display Graphics for Tech Lovers</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/windows-alternatives-enabling-video-calls-like-facetime/"><u>Windows Alternatives: Enabling Video Calls Like FaceTime</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-tier-80s-visual-tricks-for-elevated-editing/"><u>[New] Top-Tier 80S Visual Tricks for Elevated Editing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-tracking-your-followers-departure-for-2024/"><u>[Updated] Instagram Tracking Your Followers' Departure for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-transform-your-images-with-text-a-windowsmacos-expertise-guide/"><u>[Updated] Transform Your Images with Text A Windows/MacOS Expertise Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-brand-ambassador-online/"><u>Becoming a Brand Ambassador Online</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/crafting-a-cinematic-look-ken-burns-in-camtasa-for-2024/"><u>Crafting a Cinematic Look Ken Burns in Camtasa for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/detecting-a-jammed-or-empty-printer-tips-and-tricks-by-yl-computing/"><u>Detecting a Jammed or Empty Printer: Tips & Tricks by YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/discovering-the-creator-unveiling-the-mind-behind-the-esteemed-tao-te-ching-and-its-influence-on-chinese-wisdom-insights-by-yl-computing/"><u>Discovering the Creator: Unveiling the Mind Behind the Esteemed 'Tao Te Ching' And Its Influence on Chinese Wisdom - Insights by YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/enhance-security-why-implement-two-factor-authentication-on-your-wordpress-website-guided-by-yl-computing/"><u>Enhance Security: Why Implement Two-Factor Authentication on Your WordPress Website? - Guided by YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-can-you-restore-deleted-files-on-windows-systems-expert-tips-by-yl-computing/"><u>How Can You Restore Deleted Files on Windows Systems? - Expert Tips by YL Computing</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Samsung Galaxy A34 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-frequent-shutdowns-during-the-surge-cued-to-solved-the-surge-2-keeps-crashing/"><u>How To Fix Frequent Shutdowns During The Surge Cued To: [Solved] The Surge 2 Keeps Crashing</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Stop Google Chrome from Tracking Your Location On Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/step-by-step-garageband-tutorial-for-podcast-creation-for-2024/"><u>Step-by-Step GarageBand Tutorial for Podcast Creation for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-to-tweaking-display-options-in-windows-control-panel-yl-software-solutions/"><u>Step-by-Step Guide to Tweaking Display Options in Windows Control Panel - YL Software Solutions</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-recovering-deleted-files-in-windows-tips-from-yl-software/"><u>Step-by-Step Guide: Recovering Deleted Files in Windows - Tips From YL Software</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/weekly-freshest-karaoke-songs-unlock-with-karaoke-cloud-pro-start-your-free-trial-now/"><u>Weekly Freshest Karaoke Songs - Unlock with Karaoke Cloud Pro: Start Your Free Trial Now!</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/windows-users-handbook-easy-ways-to-access-and-edit-text-documents-with-yl-software-insights/"><u>Windows User's Handbook: Easy Ways to Access & Edit Text Documents with YL Software Insights</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/yl-computing-unveils-strategies-for-diagnosing-computer-startup-challenges/"><u>YL Computing Unveils Strategies for Diagnosing Computer Startup Challenges</u></a></li>
 </ul></div>
 

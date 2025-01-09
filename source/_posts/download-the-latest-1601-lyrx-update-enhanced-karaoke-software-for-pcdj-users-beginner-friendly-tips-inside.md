@@ -1,7 +1,7 @@
 ---
 title: Download the Latest 1.6.0.1 LYRX Update – Enhanced Karaoke Software for PCDJ Users | Beginner-Friendly Tips Inside
-date: 2024-12-22T17:38:23.274Z
-updated: 2024-12-29T22:37:56.150Z
+date: 2025-01-06T20:00:17.047Z
+updated: 2025-01-09T12:19:33.296Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/7d541f24f083a78654b60cdafb0ff977b1be425e9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.1 of LYRX karaoke software is available for download.
@@ -33,7 +33,7 @@ Again, we appreciate all the assistance and feedback we’ve received from LYRX 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a fully-functional free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.1
@@ -55,7 +55,7 @@ If you still can’t access any audio from the inputs follow these steps:
 _Have questions about the latest 1.6.0.1 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -77,20 +77,19 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover.jpg?fit=1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-permitted-practices-for-saving-youtube-videos/"><u>[New] 2024 Approved Permitted Practices for Saving YouTube Videos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-quick-start-guide-to-setup-and-use-obs-on-apple-systems-for-2024/"><u>[New] Quick Start Guide to Setup and Use OBS on Apple Systems for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-snapshots-of-life-compreenasive-guide-to-capturing-the-journey-of-playing-sims-4-for-2024/"><u>[New] Snapshots of Life Compreenasive Guide to Capturing the Journey of Playing Sims 4 for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-capturing-games-a-guide-to-options-other-than-game-bar-for-2024/"><u>[Updated] Capturing Games A Guide to Options Other Than Game Bar for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-muting-unwanted-noise-obs-audio-solution-for-2024/"><u>[Updated] Muting Unwanted Noise OBS Audio Solution for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/configuring-antivirus-and-firewall-options-through-your-pcs-control-panel-expert-advice-from-cybersecure-solutions/"><u>Configuring Antivirus and Firewall Options Through Your PC's Control Panel - Expert Advice From CyberSecure Solutions</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/easy-steps-for-upgrading-your-graphic-card-drivers-on-pcs-with-windows-expert-advice-from-yl-computing-software-team/"><u>Easy Steps for Upgrading Your Graphic Card Drivers on PCs with Windows - Expert Advice From YL Computing Software Team</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/guide-navigating-to-device-manager-from-control-panel-on-your-pc-with-yl-software-help/"><u>Guide: Navigating to Device Manager From Control Panel on Your PC with YL Software Help</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/hp-d1360-printer-setup-failure-in-multiple-windows-versions/"><u>HP D1360 Printer Setup Failure in Multiple Windows Versions</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-tailored-macos-tutorials-for-editing-srt-files/"><u>In 2024, Tailored macOS Tutorials for Editing SRT Files</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-honor-x9b-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Honor X9b for Streaming | Dr.fone</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/realistic-flaming-motion-wallpaper-in-high-definition-1080p-seamless-loop-by-yl-computing/"><u>Realistic Flaming Motion Wallpaper in High Definition - 1080P Seamless Loop by YL Computing</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ltimate-guide-to-itunes-video-downloading-for-ios-users/"><u>The Ultimate Guide to iTunes Video Downloading for iOS Users</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/thor-love-and-thunder-stunning-wallpapers-and-backgrounds-by-yl-computing/"><u>Thor: Love & Thunder - Stunning Wallpapers & Backgrounds by YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/yl-software-tips-maximizing-battery-life-with-power-saving-mode/"><u>YL Software Tips: Maximizing Battery Life with Power Saving Mode</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-windows-11-capture-top-eight-tools-ranked/"><u>[New] 2024 Approved Windows 11 Capture Top Eight Tools Ranked</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solved-logitech-g-hub-not-working-on-windows/"><u>[SOLVED] Logitech G HUB Not Working on Windows</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-mememasters-suite-download/"><u>[Updated] 2024 Approved MemeMasters Suite Download</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-chromatic-confluence-music-and-photography-online/"><u>[Updated] Chromatic Confluence Music & Photography Online</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/combining-external-antivirus-solutions-with-built-in-windows-security-do-you-need-both/"><u>Combining External Antivirus Solutions with Built-In Windows Security: Do You Need Both?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/diy-iphone-audio-memos-step-by-step-for-2024/"><u>DIY iPhone Audio Memos Step by Step for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-apple-iphone-13-mini-activation-lock-by-drfone-ios/"><u>How to Remove Apple iPhone 13 mini Activation Lock</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/identifying-graphic-card-overheat-essential-tips-from-yl-computing/"><u>Identifying Graphic Card Overheat: Essential Tips From YL Computing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-step-by-step-building-a-youtube-empire-from-scratch/"><u>In 2024, Step by Step Building a YouTube Empire From Scratch</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-challenges-with-a-malfunctioning-lucidsound-ls30-microphone/"><u>Overcoming Challenges with a Malfunctioning LucidSound LS30 Microphone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/solving-slow-download-issues-with-simple-tips-insights-by-yl-software-specialists/"><u>Solving Slow Download Issues with Simple Tips - Insights by YL Software Specialists</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-monitoring-and-assessing-your-computers-cpu-heat-levels-with-yl-solutions/"><u>Step-by-Step Guide: Monitoring and Assessing Your Computer's CPU Heat Levels with YL Solutions</u></a></li>
+<li><a href="https://win-webster.techidaily.com/step-by-step-tutorial-for-seamlessly-integrating-spotify-content-into-musicbee-library/"><u>Step-by-Step Tutorial for Seamlessly Integrating Spotify Content Into MusicBee Library</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/yl-computings-techniques-for-customizing-file-icons-in-the-windows-os/"><u>YL Computing's Techniques for Customizing File Icons in the Windows OS</u></a></li>
 </ul></div>
 

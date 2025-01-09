@@ -1,7 +1,7 @@
 ---
 title: "MacOS High Sierra Support in Dexed Loopers (DEX) Version 3 and Beyond: Unlocking Capabilities with LYRX Plugin on PCDJ"
-date: 2024-12-24T18:13:40.852Z
-updated: 2024-12-29T18:44:15.194Z
+date: 2025-01-02T20:24:40.207Z
+updated: 2025-01-09T07:14:15.738Z
 tags:
   - product
 categories:
@@ -36,7 +36,7 @@ Elevate your DJ game with [DEX 3](https://tools.techidaily.com/pcdj/products/) o
 _**PCDJ enables you to #MixEverything**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -58,16 +58,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/09/macoshighsierra-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-tailoring-your-techniques-for-itunes-videos-for-2024/"><u>[Updated] Tailoring Your Techniques for iTunes Videos for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-unifying-your-digital-storytelling-via-merged-youtube-media/"><u>2024 Approved Unifying Your Digital Storytelling via Merged YouTube Media</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/building-captivating-visual-puzzles-a-mosaic-journey/"><u>Building Captivating Visual Puzzles A Mosaic Journey</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/celebrate-the-season-with-vibrant-thanksgiving-imagery-and-backgrounds-from-yl-software/"><u>Celebrate the Season with Vibrant Thanksgiving Imagery and Backgrounds From YL Software</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/ensuring-your-ram-matches-your-motherboard-a-guide-from-yl-technology-experts/"><u>Ensuring Your RAM Matches Your Motherboard: A Guide From YL Technology Experts</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-easily-switch-from-ogg-to-m4r-format-top-4-free-tools-and-websites/"><u>How To Easily Switch From OGG to M4R Format - Top 4 Free Tools & Websites</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Oppo A56s 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/maximize-your-computers-safety-a-guide-to-fine-tuning-windows-defender-by-yl-software-experts/"><u>Maximize Your Computer's Safety: A Guide to Fine-Tuning Windows Defender by YL Software Experts</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/resolving-driver-conflicts-in-windows-systems-expert-tips-from-yl-computing/"><u>Resolving Driver Conflicts in Windows Systems: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-to-checking-your-computers-power-unit-tips-by-yl-software-professionals/"><u>Step-by-Step Guide to Checking Your Computer’s Power Unit: Tips by YL Software Professionals</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/streaming-showdown-is-streamlabs-or-obs-your-best-choice/"><u>Streaming Showdown Is Streamlabs or OBS Your Best Choice?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-top-5-ios-emulators-that-bring-your-favorite-psp-worlds-to-life/"><u>[New] Top 5 iOS Emulators That Bring Your Favorite PSP Worlds to Life</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-achieve-gentle-edges-in-photo-sharpening/"><u>2024 Approved Achieve Gentle Edges in Photo Sharpening</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/55-dj-controllers-now-supported-pcdj/"><u>55 DJ Controllers Now Supported | PCDJ.</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/cast-your-canvas-into-the-night-with-paints-dark-mode/"><u>Cast Your Canvas Into the Night with Paint's Dark Mode</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/configuring-windows-firewall-made-easy-with-expert-advice-from-yl-software-team/"><u>Configuring Windows Firewall Made Easy with Expert Advice From YL Software Team</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/convert-mp3-to-wav-free-a-step-by-step-guide-for-windows-users/"><u>Convert MP3 to WAV Free: A Step-by-Step Guide for Windows Users</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/easily-update-your-screen-calibration-with-control-panel-adjustments-expert-hints-by-yl-software-professionals/"><u>Easily Update Your Screen Calibration with Control Panel Adjustments – Expert Hints by YL Software Professionals</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-vivo-y56-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Vivo Y56 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-plus-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 Plus To Other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/inspect-and-optimize-understanding-the-status-of-your-pcs-hardware-with-yl-technology-solutions/"><u>Inspect and Optimize: Understanding the Status of Your PC's Hardware with YL Technology Solutions</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/mastering-file-name-changes-with-yl-software-ultimate-tips-and-tricks/"><u>Mastering File Name Changes with YL Software - Ultimate Tips & Tricks</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/recognizing-gpu-issues-key-signs-your-graphics-card-might-be-failing-tips-from-yl-technologies/"><u>Recognizing GPU Issues: Key Signs Your Graphics Card Might Be Failing - Tips From YL Technologies</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/resolving-graphics-card-display-issues-expert-tips-from-yl-computing/"><u>Resolving Graphics Card Display Issues: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-crafting-an-ai-chatbot-with-generative-pre-trained-transformer-technology-and-azure-bot-service-tools/"><u>Step-by-Step Guide: Crafting an AI Chatbot with Generative Pre-Trained Transformer Technology and Azure Bot Service Tools</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/ultra-hd-wallpapers-inspired-by-the-iconic-bugatti-chiron-premium-display-graphics-for-tech-lovers/"><u>Ultra-HD Wallpapers Inspired by the Iconic Bugatti Chiron – Premium Display Graphics for Tech Lovers</u></a></li>
+<li><a href="https://some-tips.techidaily.com/wear-os-upgrade-now-with-google-wallets-loyalty-program-integration-featuring-starbucks-and-cvs/"><u>Wear OS Upgrade: Now with Google Wallet's Loyalty Program Integration Featuring Starbucks & CVS</u></a></li>
 </ul></div>
 
