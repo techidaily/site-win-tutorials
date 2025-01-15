@@ -1,7 +1,7 @@
 ---
 title: Download the Latest 1.6.0.1 LYRX Update – Enhanced Karaoke Software for PCDJ Users | Beginner-Friendly Tips Inside
-date: 2025-01-06T20:00:17.047Z
-updated: 2025-01-09T12:19:33.296Z
+date: 2025-01-08T17:47:18.443Z
+updated: 2025-01-15T03:11:54.430Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/7d541f24f083a78654b60cdafb0ff977b1be425e9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.1 of LYRX karaoke software is available for download.
@@ -33,7 +33,7 @@ Again, we appreciate all the assistance and feedback we’ve received from LYRX 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a fully-functional free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.1
@@ -55,7 +55,7 @@ If you still can’t access any audio from the inputs follow these steps:
 _Have questions about the latest 1.6.0.1 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -77,19 +77,18 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover.jpg?fit=1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-windows-11-capture-top-eight-tools-ranked/"><u>[New] 2024 Approved Windows 11 Capture Top Eight Tools Ranked</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solved-logitech-g-hub-not-working-on-windows/"><u>[SOLVED] Logitech G HUB Not Working on Windows</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-mememasters-suite-download/"><u>[Updated] 2024 Approved MemeMasters Suite Download</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-chromatic-confluence-music-and-photography-online/"><u>[Updated] Chromatic Confluence Music & Photography Online</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/combining-external-antivirus-solutions-with-built-in-windows-security-do-you-need-both/"><u>Combining External Antivirus Solutions with Built-In Windows Security: Do You Need Both?</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/diy-iphone-audio-memos-step-by-step-for-2024/"><u>DIY iPhone Audio Memos Step by Step for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-apple-iphone-13-mini-activation-lock-by-drfone-ios/"><u>How to Remove Apple iPhone 13 mini Activation Lock</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/identifying-graphic-card-overheat-essential-tips-from-yl-computing/"><u>Identifying Graphic Card Overheat: Essential Tips From YL Computing</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-step-by-step-building-a-youtube-empire-from-scratch/"><u>In 2024, Step by Step Building a YouTube Empire From Scratch</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/overcoming-challenges-with-a-malfunctioning-lucidsound-ls30-microphone/"><u>Overcoming Challenges with a Malfunctioning LucidSound LS30 Microphone</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/solving-slow-download-issues-with-simple-tips-insights-by-yl-software-specialists/"><u>Solving Slow Download Issues with Simple Tips - Insights by YL Software Specialists</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-monitoring-and-assessing-your-computers-cpu-heat-levels-with-yl-solutions/"><u>Step-by-Step Guide: Monitoring and Assessing Your Computer's CPU Heat Levels with YL Solutions</u></a></li>
-<li><a href="https://win-webster.techidaily.com/step-by-step-tutorial-for-seamlessly-integrating-spotify-content-into-musicbee-library/"><u>Step-by-Step Tutorial for Seamlessly Integrating Spotify Content Into MusicBee Library</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/yl-computings-techniques-for-customizing-file-icons-in-the-windows-os/"><u>YL Computing's Techniques for Customizing File Icons in the Windows OS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-peering-into-the-future-lg-tv-bp550-2023-review-for-2024/"><u>[New] Peering Into the Future LG TV BP550 2023 Review for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-win11s-ultimate-video-recorder-guide/"><u>[New] Win11's Ultimate Video Recorder Guide</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/solved-volsnapsys-blue-screen-errors-bsod-in-windows/"><u>[SOLVED] Volsnap.sys Blue Screen Errors (BSOD) in Windows</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/comprendere-e-installare-un-nvme-ssd-in-uno-slot-unico-una-procedura-dettagliata-passo-passo/"><u>Comprendere E Installare Un NVMe SSD in Uno Slot Unico: Una Procedura Dettagliata Passo-Passo!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-data-from-huawei-nova-y91-by-fonelab-android-recover-data/"><u>Easy steps to recover deleted data from Huawei Nova Y91</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/guia-detallada-para-ejecutar-la-herramienta-de-preparacion-del-sistema-sysprep-en-windows-11-y-10-un-enfoque-paso-por-paso/"><u>Guía Detallada Para Ejecutar La Herramienta De Preparación Del Sistema (Sysprep) en Windows 11 Y 10: Un Enfoque Paso Por Paso</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-to-safely-migrate-virtual-machines-between-esxi-hosts-using-command-line/"><u>How to Safely Migrate Virtual Machines Between ESXi Hosts Using Command Line</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-legal-tips-and-tricks-for-custom-watermarking-in-instagram/"><u>In 2024, Legal Tips and Tricks for Custom Watermarking in Instagram</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-overcoming-the-windows-11-photo-app-hurdles/"><u>In 2024, Overcoming the Windows 11 Photo App Hurdles</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/making-the-most-of-your-television-with-fb-live-for-2024/"><u>Making the Most of Your Television with FB Live for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/warzone-pc-freezing-solutions-expert-advice-and-fixes-for-202-4/"><u>Warzone PC Freezing Solutions: Expert Advice and Fixes for 202 4</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/windows-11-incremental-vs-differential-backup-strategies-explained/"><u>Windows 11: Incremental Vs. Differential Backup Strategies Explained</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/pcdji/"><u>おすすめ！PC上で楽しむDJI 動画編集ソフトウェアの効果的な使用テクニック</u></a></li>
 </ul></div>
 

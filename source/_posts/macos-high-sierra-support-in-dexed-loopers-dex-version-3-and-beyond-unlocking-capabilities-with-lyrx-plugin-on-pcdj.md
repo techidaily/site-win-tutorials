@@ -1,7 +1,7 @@
 ---
 title: "MacOS High Sierra Support in Dexed Loopers (DEX) Version 3 and Beyond: Unlocking Capabilities with LYRX Plugin on PCDJ"
-date: 2025-01-02T20:24:40.207Z
-updated: 2025-01-09T07:14:15.738Z
+date: 2025-01-11T22:32:19.719Z
+updated: 2025-01-14T16:56:44.607Z
 tags:
   - product
 categories:
@@ -36,7 +36,7 @@ Elevate your DJ game with [DEX 3](https://tools.techidaily.com/pcdj/products/) o
 _**PCDJ enables you to #MixEverything**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -58,22 +58,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/09/macoshighsierra-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-top-5-ios-emulators-that-bring-your-favorite-psp-worlds-to-life/"><u>[New] Top 5 iOS Emulators That Bring Your Favorite PSP Worlds to Life</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-achieve-gentle-edges-in-photo-sharpening/"><u>2024 Approved Achieve Gentle Edges in Photo Sharpening</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/55-dj-controllers-now-supported-pcdj/"><u>55 DJ Controllers Now Supported | PCDJ.</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/cast-your-canvas-into-the-night-with-paints-dark-mode/"><u>Cast Your Canvas Into the Night with Paint's Dark Mode</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/configuring-windows-firewall-made-easy-with-expert-advice-from-yl-software-team/"><u>Configuring Windows Firewall Made Easy with Expert Advice From YL Software Team</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/convert-mp3-to-wav-free-a-step-by-step-guide-for-windows-users/"><u>Convert MP3 to WAV Free: A Step-by-Step Guide for Windows Users</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/easily-update-your-screen-calibration-with-control-panel-adjustments-expert-hints-by-yl-software-professionals/"><u>Easily Update Your Screen Calibration with Control Panel Adjustments – Expert Hints by YL Software Professionals</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-my-vivo-y56-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Vivo Y56 5G Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-plus-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 Plus To Other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Vivo S18 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/inspect-and-optimize-understanding-the-status-of-your-pcs-hardware-with-yl-technology-solutions/"><u>Inspect and Optimize: Understanding the Status of Your PC's Hardware with YL Technology Solutions</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/mastering-file-name-changes-with-yl-software-ultimate-tips-and-tricks/"><u>Mastering File Name Changes with YL Software - Ultimate Tips & Tricks</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/recognizing-gpu-issues-key-signs-your-graphics-card-might-be-failing-tips-from-yl-technologies/"><u>Recognizing GPU Issues: Key Signs Your Graphics Card Might Be Failing - Tips From YL Technologies</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/resolving-graphics-card-display-issues-expert-tips-from-yl-computing/"><u>Resolving Graphics Card Display Issues: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-crafting-an-ai-chatbot-with-generative-pre-trained-transformer-technology-and-azure-bot-service-tools/"><u>Step-by-Step Guide: Crafting an AI Chatbot with Generative Pre-Trained Transformer Technology and Azure Bot Service Tools</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/ultra-hd-wallpapers-inspired-by-the-iconic-bugatti-chiron-premium-display-graphics-for-tech-lovers/"><u>Ultra-HD Wallpapers Inspired by the Iconic Bugatti Chiron – Premium Display Graphics for Tech Lovers</u></a></li>
-<li><a href="https://some-tips.techidaily.com/wear-os-upgrade-now-with-google-wallets-loyalty-program-integration-featuring-starbucks-and-cvs/"><u>Wear OS Upgrade: Now with Google Wallet's Loyalty Program Integration Featuring Starbucks & CVS</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-leading-edge-the-ultimate-15-camera-guide/"><u>[New] Leading Edge The Ultimate 15 Camera Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-seamless-video-to-photo-conversion-for-windows-users/"><u>[New] Seamless Video-to-Photo Conversion for Windows Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-tips-for-troubled-feed-viewers-reveal-hidden-fb-videos/"><u>[Updated] In 2024, Tips for Troubled Feed Viewers Reveal Hidden FB Videos</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1726028510421-powerpoint/"><u>「PowerPointプレゼンテーションの自動発話録音手順」</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/1-troubleshooting-guide-how-to-fix-a-malfunctioning-sound-card-expert-advice-from-yl-computing/"><u>1. Troubleshooting Guide: How To Fix A Malfunctioning Sound Card - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-29-visionary-metaverse-projects-elucidating-potentialities/"><u>2024 Approved 29 Visionary Metaverse Projects Elucidating Potentialities</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/do-you-need-to-pay-for-cryptocurrency-address-balance-verification-services-from-yl-computing/"><u>Do You Need to Pay for Cryptocurrency Address Balance Verification Services From YL Computing?</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/faster-launch-times-strategies-to-enhance-your-pcs-initial-boot-yl-technology-insights/"><u>Faster Launch Times: Strategies to Enhance Your PC's Initial Boot - YL Technology Insights</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/fixing-issues-how-to-resolve-dts-audio-not-available-on-your-selected-device/"><u>Fixing Issues: How to Resolve 'DTS Audio Not Available' On Your Selected Device</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/identifying-a-defective-graphics-card-expert-insights-from-yl-computing/"><u>Identifying a Defective Graphics Card: Expert Insights From YL Computing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-infinix-note-30-vip-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Infinix Note 30 VIP</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/mastering-digital-coin-investments-expert-tips-by-yl-software-professionals/"><u>Mastering Digital Coin Investments: Expert Tips by YL Software Professionals</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/setting-up-a-fresh-user-profile-with-yl-computing-a-step-by-step-guide/"><u>Setting Up a Fresh User Profile with YL Computing - A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/solutions-for-incorrect-graphics-performance-get-expert-advice-from-yl-computings-tech-specialists/"><u>Solutions for Incorrect Graphics Performance - Get Expert Advice From YL Computing's Tech Specialists</u></a></li>
+<li><a href="https://win-data.techidaily.com/solving-hardware-issues-on-your-pc-a-comprehensive-guide-by-yl-computing/"><u>Solving Hardware Issues on Your PC: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-paradox-of-artificial-intelligence-how-chatgpt-fails-to-spot-its-own-writing/"><u>The Paradox of Artificial Intelligence: How ChatGPT Fails to Spot Its Own Writing</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/understanding-instagrams-privacy-controls-for-2024/"><u>Understanding Instagram's Privacy Controls for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/yl-computings-tutorial-on-integrating-applications-into-windows-context-menu/"><u>YL Computing's Tutorial on Integrating Applications Into Windows Context Menu</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/yl-softwares-ultimate-collection-of-dark-themed-4k-visual-wallpaper-and-photo-gallery/"><u>YL Software's Ultimate Collection of Dark Themed 4K Visual Wallpaper and Photo Gallery</u></a></li>
 </ul></div>
 
