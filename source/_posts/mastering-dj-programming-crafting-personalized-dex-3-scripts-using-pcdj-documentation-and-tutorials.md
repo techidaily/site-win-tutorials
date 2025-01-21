@@ -1,7 +1,7 @@
 ---
 title: "Mastering DJ Programming: Crafting Personalized DEX 3 Scripts Using PCDJ Documentation and Tutorials"
-date: 2025-01-12T23:23:12.079Z
-updated: 2025-01-14T16:26:53.956Z
+date: 2025-01-19T23:10:59.829Z
+updated: 2025-01-21T03:06:49.928Z
 tags:
   - product
 categories:
@@ -30,7 +30,7 @@ DEX 3 and RED Mobile 3 Default DJ Controller scripts are stored in: App folder (
 [Download DEX 3 Actions And Notifications Documentation](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -52,24 +52,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2015/04/scripting-coverimage.jpg?f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-shades-and-tones-elevating-your-visuals/"><u>[New] Shades and Tones Elevating Your Visuals</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-a-list-guide-to-instagram-photo-mastery/"><u>[Updated] In 2024, The A-List Guide to Instagram Photo Mastery</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-the-ultimate-guide-to-screenflow-pros-mac-edition/"><u>[Updated] In 2024, The Ultimate Guide to ScreenFlow Pro's Mac Edition</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/asistencia-online-de-venta-para-el-programa-winx-escapador-de-dvd-y-convertidor-de-videos/"><u>Asistencia Online De Venta Para El Programa WinX: Escapador De DVD Y Convertidor De Videos</u></a></li>
-<li><a href="https://extra-information.techidaily.com/comprehensive-solution-for-srt-not-working-in-premiere-for-2024/"><u>Comprehensive Solution for SRT Not Working in Premiere for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/enhancing-system-performance-do-you-need-specialized-software-tools/"><u>Enhancing System Performance: Do You Need Specialized Software Tools?</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/identifying-critical-hardware-issues-leading-to-memory-malfunction-insights-from-yl-software-experts/"><u>Identifying Critical Hardware Issues Leading to Memory Malfunction - Insights From YL Software Experts</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/identifying-memory-problems-expert-tips-from-yl-computings-latest-guide/"><u>Identifying Memory Problems: Expert Tips From YL Computing's Latest Guide</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/latest-karaoke-song-catalogue-party-time-updates-from-new-pcdj-march-2018-subscribe-now/"><u>Latest Karaoke Song Catalogue: Party Time Updates From New PCDJ, March 2018 - Subscribe Now!</u></a></li>
-<li><a href="https://win-forum.techidaily.com/locating-and-checking-the-powershell-version-on-your-windows-10-system/"><u>Locating and Checking the PowerShell Version on Your Windows 10 System</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/reinstallation-steps-to-restore-photo-viewer-in-windows-10/"><u>Reinstallation Steps to Restore Photo Viewer in Windows 10</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-creating-compressed-folders-on-windows-pcs-tips-from-yl-computing/"><u>Step-by-Step Guide: Creating Compressed Folders on Windows PCs - Tips From YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/stunning-january-2022-desktop-wallpapers-and-themes-by-yl-computing-your-ultimate-digital-canvas/"><u>Stunning January 2022 Desktop Wallpapers & Themes by YL Computing - Your Ultimate Digital Canvas</u></a></li>
-<li><a href="https://some-tips.techidaily.com/top-apples-picks-discover-the-ultimate-selection-of-apps-and-games-unveiled/"><u>Top Apple's Picks: Discover the Ultimate Selection of Apps & Games - Unveiled</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/top-strategies-for-efficiently-eliminating-redundant-applications-and-files-expert-tips-from-yl-computing/"><u>Top Strategies for Efficiently Eliminating Redundant Applications & Files - Expert Tips From YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/ultra-high-definition-wildlife-art-king-of-the-jungle-tiger-graphics-compatible-with-pcs-tablets-and-smartphones-by-yl-software/"><u>Ultra-High Definition Wildlife Art: King of the Jungle Tiger Graphics - Compatible with PCs, Tablets & Smartphones by YL Software</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/vid-lifting-made-simple-top-5-free-downloaders-for-pinterest-users/"><u>Vid Lifting Made Simple Top 5 Free Downloaders for Pinterest Users</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/what-makes-youtube-tv-stand-out-in-a-crowded-marketplace/"><u>What Makes YouTube TV Stand Out in a Crowded Marketplace</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/yl-expertise-on-smooth-network-hardware-integration-and-installation-procedures/"><u>YL Expertise on Smooth Network Hardware Integration and Installation Procedures</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-swirling-shadows-adding-realistic-motion-to-photoshop-images/"><u>[New] Swirling Shadows Adding Realistic Motion to Photoshop Images</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-top-3-affordable-switch-game-counterparts-for-2024/"><u>[New] Top 3 Affordable Switch Game Counterparts for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-maximizing-earnings-with-youtube-studio-monetization-on-any-device/"><u>[Updated] Maximizing Earnings with YouTube Studio Monetization on Any Device</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-snap-inspiration-selecting-stunning-ig-visuals/"><u>2024 Approved Snap Inspiration! Selecting Stunning IG Visuals</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/5-solutions-for-vivo-y27s-unlock-without-password-by-drfone-android/"><u>5 Solutions For Vivo Y27s Unlock Without Password</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/1728493532629-windows-11/"><u>修复 Windows 11系统 - 删除更新快照的主要方法详解</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/accelerate-your-system-overcoming-delays-in-windows-11s-post-update-initialization-process/"><u>Accelerate Your System: Overcoming Delays in Windows 11'S Post-Update Initialization Process</u></a></li>
+<li><a href="https://discover-community.techidaily.com/can-handbrake-strip-out-dvd-drm-comprehensive-tutorial-for-secure-conversion/"><u>Can Handbrake Strip Out DVD DRM? Comprehensive Tutorial for Secure Conversion</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/clona-il-tuo-sistema-windows-10-in-pochi-e-semplici-passaggi-videotutorial-inclusi/"><u>Clona Il Tuo Sistema Windows 10 in Pochi E Semplici Passaggi - Videotutorial Inclusi!</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/erholung-verlorener-icloud-aufnahmen-fur-das-iphone-entdecken-sie-vier-losungen/"><u>Erholung Verlorener iCloud-Aufnahmen Für Das iPhone - Entdecken Sie Vier Lösungen</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-iphone-xr-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From iPhone XR? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/probleme-beim-ubertragung-von-daten-auf-ihrem-iphone-losen-beste-methoden-erklart/"><u>Probleme Beim Übertragung Von Daten Auf Ihrem iPhone Lösen – Beste Methoden Erklärt!</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/techniques-gratuites-pour-retrouver-les-prises-de-vue-perdues-a-partir-dun-drone-dji/"><u>Techniques Gratuites Pour Retrouver Les Prises De Vue Perdues À Partir D'un Drone DJI</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/windows-11-ssdand/"><u>Windows 11 パフォーマンス向上：SSD切り替え&インストール不要クローニング技術</u></a></li>
+<li><a href="https://driver-error.techidaily.com/windows-user-friendly-solution-for-wireless-woes/"><u>Windows User-Friendly Solution for Wireless Woes</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/faramataga-ka-bna-esada-data-paratashhathata-8-malya-ka-saha-karana-ka-le-8-avasara/"><u>फॉर्मेटिंग के बिना एसडी डेटा: प्रतिष्ठित '8' मूल्यों को सही करने के लिए 8 अवसर</u></a></li>
 </ul></div>
 

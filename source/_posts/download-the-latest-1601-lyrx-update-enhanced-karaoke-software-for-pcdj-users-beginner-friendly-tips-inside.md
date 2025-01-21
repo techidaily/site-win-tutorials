@@ -1,7 +1,7 @@
 ---
 title: Download the Latest 1.6.0.1 LYRX Update – Enhanced Karaoke Software for PCDJ Users | Beginner-Friendly Tips Inside
-date: 2025-01-08T17:47:18.443Z
-updated: 2025-01-15T03:11:54.430Z
+date: 2025-01-16T09:41:43.992Z
+updated: 2025-01-21T06:22:40.301Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/7d541f24f083a78654b60cdafb0ff977b1be425e9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.1 of LYRX karaoke software is available for download.
@@ -33,7 +33,7 @@ Again, we appreciate all the assistance and feedback we’ve received from LYRX 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a fully-functional free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.1
@@ -55,7 +55,7 @@ If you still can’t access any audio from the inputs follow these steps:
 _Have questions about the latest 1.6.0.1 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -77,18 +77,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover.jpg?fit=1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-peering-into-the-future-lg-tv-bp550-2023-review-for-2024/"><u>[New] Peering Into the Future LG TV BP550 2023 Review for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-win11s-ultimate-video-recorder-guide/"><u>[New] Win11's Ultimate Video Recorder Guide</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/solved-volsnapsys-blue-screen-errors-bsod-in-windows/"><u>[SOLVED] Volsnap.sys Blue Screen Errors (BSOD) in Windows</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/comprendere-e-installare-un-nvme-ssd-in-uno-slot-unico-una-procedura-dettagliata-passo-passo/"><u>Comprendere E Installare Un NVMe SSD in Uno Slot Unico: Una Procedura Dettagliata Passo-Passo!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-data-from-huawei-nova-y91-by-fonelab-android-recover-data/"><u>Easy steps to recover deleted data from Huawei Nova Y91</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/guia-detallada-para-ejecutar-la-herramienta-de-preparacion-del-sistema-sysprep-en-windows-11-y-10-un-enfoque-paso-por-paso/"><u>Guía Detallada Para Ejecutar La Herramienta De Preparación Del Sistema (Sysprep) en Windows 11 Y 10: Un Enfoque Paso Por Paso</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/how-to-safely-migrate-virtual-machines-between-esxi-hosts-using-command-line/"><u>How to Safely Migrate Virtual Machines Between ESXi Hosts Using Command Line</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-legal-tips-and-tricks-for-custom-watermarking-in-instagram/"><u>In 2024, Legal Tips and Tricks for Custom Watermarking in Instagram</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-overcoming-the-windows-11-photo-app-hurdles/"><u>In 2024, Overcoming the Windows 11 Photo App Hurdles</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/making-the-most-of-your-television-with-fb-live-for-2024/"><u>Making the Most of Your Television with FB Live for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/warzone-pc-freezing-solutions-expert-advice-and-fixes-for-202-4/"><u>Warzone PC Freezing Solutions: Expert Advice and Fixes for 202 4</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/windows-11-incremental-vs-differential-backup-strategies-explained/"><u>Windows 11: Incremental Vs. Differential Backup Strategies Explained</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/pcdji/"><u>おすすめ！PC上で楽しむDJI 動画編集ソフトウェアの効果的な使用テクニック</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-analyzing-the-spectrum-of-hdr-with-asus-professional-screen/"><u>[New] In 2024, Analyzing the Spectrum of HDR with ASUS Professional Screen</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-more-than-clicks-what-determines-youtubes-view-numbers/"><u>[Updated] More than Clicks What Determines YouTube's View Numbers</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/55-dj-controllers-now-supported-pcdj/"><u>55 DJ Controllers Now Supported | PCDJ.</u></a></li>
+<li><a href="https://change-location.techidaily.com/additional-tips-about-sinnoh-stone-for-vivo-y77t-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-apple-iphone-6-plus-drfone-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/diy-guide-fixing-your-hot-running-processor-with-proven-solutions-from-yl-software/"><u>DIY Guide: Fixing Your Hot-Running Processor with Proven Solutions From YL Software</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-vintage-films-with-madvr-on-pcs/"><u>Enhancing Vintage Films with MadVR on PCs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploration-summary-discovering-the-benefits-of-owning-an-ipad/"><u>Exploration Summary: Discovering the Benefits of Owning an iPad</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/flirty-screensaver-packs-with-stunning-wallpaper-collections-created-by-yl-software-experts/"><u>Flirty Screensaver Packs with Stunning Wallpaper Collections - Created by YL Software Experts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-infinix-note-30-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Infinix Note 30 FRP Without Computer</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/inspect-and-optimize-understanding-the-status-of-your-pcs-hardware-with-yl-technology-solutions/"><u>Inspect and Optimize: Understanding the Status of Your PC's Hardware with YL Technology Solutions</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/lightning-fast-windows-data-analysis-guide-for-2024/"><u>Lightning-Fast Windows Data Analysis Guide for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/recognizing-gpu-issues-key-signs-your-graphics-card-might-be-failing-tips-from-yl-technologies/"><u>Recognizing GPU Issues: Key Signs Your Graphics Card Might Be Failing - Tips From YL Technologies</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/resolving-graphics-card-display-issues-expert-tips-from-yl-computing/"><u>Resolving Graphics Card Display Issues: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://solve-help.techidaily.com/the-leading-7-video-stitching-tools-compatible-with-android-and-ios-devices/"><u>The Leading 7 Video Stitching Tools Compatible with Android & iOS Devices</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/ultra-hd-wallpapers-inspired-by-the-iconic-bugatti-chiron-premium-display-graphics-for-tech-lovers/"><u>Ultra-HD Wallpapers Inspired by the Iconic Bugatti Chiron – Premium Display Graphics for Tech Lovers</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/unlocking-new-capabilities-mastering-windows-11-updates-with-tips-from-yl-computing/"><u>Unlocking New Capabilities: Mastering Windows 11 Updates with Tips From YL Computing</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: 3 Demo Player
-date: 2025-01-07T22:27:06.636Z
-updated: 2025-01-14T22:14:40.696Z
+date: 2025-01-19T00:44:16.518Z
+updated: 2025-01-20T23:57:40.109Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,22 +46,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-gopro-shootout-max-360-vs-hero-11-performance-analysis/"><u>[New] 2024 Approved GoPro Shootout Max 360 vs Hero 11 Performance Analysis</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-100plus-best-zodiac-bio-ideas-for-messaging-enthusiasts/"><u>[New] In 2024, The 100+ Best Zodiac Bio Ideas for Messaging Enthusiasts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-audioadventurers-venturing-without-dacast/"><u>[Updated] AudioAdventurers Venturing Without DaCast</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-solutions-for-missing-shorts-thumbnails-on-youtube/"><u>[Updated] In 2024, Solutions for Missing Shorts Thumbnails on YouTube</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-ensuring-compatibility-with-macos-big-sur-release/"><u>2024 Approved Ensuring Compatibility with MacOS Big Sur Release</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/boost-your-pcs-performance-with-hardware-upgrades-expert-tips-from-yl-computing/"><u>Boost Your PC's Performance with Hardware Upgrades: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/building-your-digital-fortune-a-beginners-guide-to-assembling-a-crypto-asset-collection-with-yl-computing/"><u>Building Your Digital Fortune: A Beginner's Guide to Assembling a Crypto Asset Collection with YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/dawns-new-dress-fresh-looks-in-dj-techtools-dex-31-update/"><u>Dawn's New Dress: Fresh Looks in DJ TechTools' DEX 3.1 Update</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/dirt-5-troubleshooting-guide-solving-game-crashes-on-windowsmac/"><u>Dirt 5 Troubleshooting Guide - Solving Game Crashes on Windows/Mac</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/elevate-your-dj-skills-in-the-cloud-era-with-pcdjs-revolutionary-karaoke-experience/"><u>Elevate Your DJ Skills in the Cloud Era with PCDJ's Revolutionary Karaoke Experience</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-10plus-list-of-online-church-streaming/"><u>In 2024, The Ultimate 10+ List of Online Church Streaming</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/navigating-through-typical-gpu-troubleshooting-for-drivers-expertise-by-yl-software/"><u>Navigating Through Typical GPU Troubleshooting for Drivers - Expertise by YL Software</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/pcdj-leads-in-sing-along-technology-introducing-our-premium-users/"><u>PCDJ Leads in Sing-Along Technology – Introducing Our Premium Users</u></a></li>
-<li><a href="https://win-forum.techidaily.com/protecting-your-data-on-windows-pcs-effective-locking-techniques/"><u>Protecting Your Data on Windows PCs: Effective Locking Techniques</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/simple-method-seamless-onedrive-automatic-file-sync-and-backup/"><u>Simple Method: Seamless OneDrive Automatic File Sync & Backup</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-accessing-and-navigating-windows-registry-tips-from-yl-computing/"><u>Step-by-Step Guide: Accessing and Navigating Windows Registry - Tips From YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/troubleshooting-print-solving-connection-issues-between-your-printer-and-devices-insights-by-yl-computing/"><u>Troubleshooting Print: Solving Connection Issues Between Your Printer and Devices - Insights by YL Computing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unleashing-hidden-media-from-your-connected-friends/"><u>[Updated] Unleashing Hidden Media From Your Connected Friends</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/accelerar-el-movimiento-de-archivos-en-windows-11-una-guia-completa-con-7-metodos-efectivos-y-1-truco-especial/"><u>Accelerar El Movimiento De Archivos en Windows 11: Una Guía Completa Con 7 Métodos Efectivos Y 1 Truco Especial</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/comment-effacer-votre-historique-de-fichier-sur-windows-10-un-guide-pratique/"><u>Comment Effacer Votre Historique De Fichier Sur Windows 10: Un Guide Pratique</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/complete-fixes-for-the-perpetual-rotation-error-in-windows-10-across-any-situation/"><u>Complete Fixes for the Perpetual Rotation Error in Windows 10 Across Any Situation</u></a></li>
+<li><a href="https://discover-data.techidaily.com/concealing-flipbuilder-urls-in-your-digital-library-links/"><u>Concealing FlipBuilder URLs in Your Digital Library Links</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722963530493-get-the-newest-toshiba-nb35-n704-dynabook-drivers-for-windows-free-downloads-available/"><u>Get the Newest Toshiba NB35-N704 Dynabook Drivers for Windows - Free Downloads Available</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/gmailoutlookpst/"><u>Gmail和Outlook联动：转换PST数据库到电子邮件服务的步骤解析</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/guia-simple-para-realizar-una-restauracion-de-cache-completa-en-windows-10-sin-costes/"><u>Guía Simple Para Realizar Una Restauración De Caché Completa en Windows 10 Sin Costes</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-x-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone X to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-s23-fe-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy S23 FE Phones with/without a PC</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/no-itunes-needed-2-effective-methods-for-uploading-mp3-files-onto-your-ipad/"><u>No iTunes Needed: 2 Effective Methods for Uploading MP3 Files Onto Your iPad</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/overcoming-hybrid-card-problem-in-win11/"><u>Overcoming Hybrid Card Problem in Win11</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/resolve-windows-7-error-0x80072f8f-0x20000-step-by-step-troubleshooting-guide/"><u>Resolve Windows 7 Error 0X80072f8f-0x20000: Step-by-Step Troubleshooting Guide</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/restaurar-la-funcionalidad-de-tu-unidad-usb-con-metodos-rapidos-y-efectivos/"><u>Restaurar La Funcionalidad De Tu Unidad USB Con Métodos Rápidos Y Efectivos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/sound-system-advances-announced/"><u>Sound System Advances Announced</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unbox-the-latest-tomtom-bandit-camera/"><u>Unbox the Latest TomTom Bandit Camera</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/whos-sharing-my-post-unmasking-the-users-that-helped-it-spread-on-facebook/"><u>Who's Sharing My Post? Unmasking the Users that Helped It Spread on Facebook</u></a></li>
 </ul></div>
 
