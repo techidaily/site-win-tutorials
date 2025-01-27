@@ -1,7 +1,7 @@
 ---
 title: 3 Demo Player
-date: 2025-01-19T00:44:16.518Z
-updated: 2025-01-20T23:57:40.109Z
+date: 2025-01-20T05:57:35.286Z
+updated: 2025-01-27T01:15:03.654Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,22 +46,18 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-unleashing-hidden-media-from-your-connected-friends/"><u>[Updated] Unleashing Hidden Media From Your Connected Friends</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/accelerar-el-movimiento-de-archivos-en-windows-11-una-guia-completa-con-7-metodos-efectivos-y-1-truco-especial/"><u>Accelerar El Movimiento De Archivos en Windows 11: Una Guía Completa Con 7 Métodos Efectivos Y 1 Truco Especial</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/comment-effacer-votre-historique-de-fichier-sur-windows-10-un-guide-pratique/"><u>Comment Effacer Votre Historique De Fichier Sur Windows 10: Un Guide Pratique</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/complete-fixes-for-the-perpetual-rotation-error-in-windows-10-across-any-situation/"><u>Complete Fixes for the Perpetual Rotation Error in Windows 10 Across Any Situation</u></a></li>
-<li><a href="https://discover-data.techidaily.com/concealing-flipbuilder-urls-in-your-digital-library-links/"><u>Concealing FlipBuilder URLs in Your Digital Library Links</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722963530493-get-the-newest-toshiba-nb35-n704-dynabook-drivers-for-windows-free-downloads-available/"><u>Get the Newest Toshiba NB35-N704 Dynabook Drivers for Windows - Free Downloads Available</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/gmailoutlookpst/"><u>Gmail和Outlook联动：转换PST数据库到电子邮件服务的步骤解析</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/guia-simple-para-realizar-una-restauracion-de-cache-completa-en-windows-10-sin-costes/"><u>Guía Simple Para Realizar Una Restauración De Caché Completa en Windows 10 Sin Costes</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-x-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone X to iPhone Including iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-s23-fe-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy S23 FE Phones with/without a PC</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/no-itunes-needed-2-effective-methods-for-uploading-mp3-files-onto-your-ipad/"><u>No iTunes Needed: 2 Effective Methods for Uploading MP3 Files Onto Your iPad</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/overcoming-hybrid-card-problem-in-win11/"><u>Overcoming Hybrid Card Problem in Win11</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/resolve-windows-7-error-0x80072f8f-0x20000-step-by-step-troubleshooting-guide/"><u>Resolve Windows 7 Error 0X80072f8f-0x20000: Step-by-Step Troubleshooting Guide</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/restaurar-la-funcionalidad-de-tu-unidad-usb-con-metodos-rapidos-y-efectivos/"><u>Restaurar La Funcionalidad De Tu Unidad USB Con Métodos Rápidos Y Efectivos</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/sound-system-advances-announced/"><u>Sound System Advances Announced</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unbox-the-latest-tomtom-bandit-camera/"><u>Unbox the Latest TomTom Bandit Camera</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/whos-sharing-my-post-unmasking-the-users-that-helped-it-spread-on-facebook/"><u>Who's Sharing My Post? Unmasking the Users that Helped It Spread on Facebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-alternatives-to-googles-ar-interactive-graphics/"><u>[Updated] 2024 Approved Alternatives to Google's AR Interactive Graphics</u></a></li>
+<li><a href="https://article-files.techidaily.com/curated-lists-of-websites-offering-youtube-tone-purchases-for-2024/"><u>Curated Lists of Websites Offering YouTube Tone Purchases for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/guia-detallada-para-ejecutar-la-herramienta-de-preparacion-del-sistema-sysprep-en-windows-11-y-10-un-enfoque-paso-por-paso/"><u>Guía Detallada Para Ejecutar La Herramienta De Preparación Del Sistema (Sysprep) en Windows 11 Y 10: Un Enfoque Paso Por Paso</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-honor-magic-5-pro-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Honor Magic 5 Pro Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-to-safely-migrate-virtual-machines-between-esxi-hosts-using-command-line/"><u>How to Safely Migrate Virtual Machines Between ESXi Hosts Using Command Line</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-apple-iphone-13-without-a-passcode-drfone-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your Apple iPhone 13 Without a Passcode | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-tutorial-for-iphone-and-ipad-users-how-to-enjoy-amazons-azw3-books/"><u>Step-by-Step Tutorial for iPhone & iPad Users - How to Enjoy Amazon's AZW3 Books</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/strategie-efficaci-per-superare-i-problemi-al-recupero-di-windows-nove-versione-11-che-non-stanno-funzionando/"><u>Strategie Efficaci per Superare I Problemi Al Recupero Di Windows Nove Versione 11 Che Non Stanno Funzionando</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/strategies-to-arrange-content-in-youtube-media/"><u>Strategies to Arrange Content in YouTube Media</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-oppo-reno-10-pro-5g-by-drfone-android/"><u>Three Ways to Sim Unlock Oppo Reno 10 Pro 5G</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/ultimate-troubleshooting-techniques-for-system-thread-exception-not-handled-errors-on-windows-10-top-5-methods/"><u>Ultimate Troubleshooting Techniques for System Thread Exception Not Handled Errors on Windows 10 (Top 5 Methods)</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/windows-11-incremental-vs-differential-backup-strategies-explained/"><u>Windows 11: Incremental Vs. Differential Backup Strategies Explained</u></a></li>
 </ul></div>
 
