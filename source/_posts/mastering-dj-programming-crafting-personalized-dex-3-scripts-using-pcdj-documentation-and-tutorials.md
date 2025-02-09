@@ -1,7 +1,7 @@
 ---
 title: "Mastering DJ Programming: Crafting Personalized DEX 3 Scripts Using PCDJ Documentation and Tutorials"
-date: 2025-01-25T23:27:53.840Z
-updated: 2025-01-26T22:19:19.201Z
+date: 2025-02-07T21:11:37.209Z
+updated: 2025-02-08T23:10:34.763Z
 tags:
   - product
 categories:
@@ -30,7 +30,7 @@ DEX 3 and RED Mobile 3 Default DJ Controller scripts are stored in: App folder (
 [Download DEX 3 Actions And Notifications Documentation](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -52,24 +52,18 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2015/04/scripting-coverimage.jpg?f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-open-access-to-the-masters-oeuvre/"><u>[New] 2024 Approved Open Access to the Masters' Oeuvre</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-optimal-video-intros-selecting-the-top-16-to-increase-views/"><u>[New] In 2024, Optimal Video Intros Selecting the Top 16 to Increase Views</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-one-minute-mastery-of-fades/"><u>[New] One-Minute Mastery of Fades</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-deciphering-the-variance-between-metaverse-and-multi-meva-environments/"><u>[Updated] 2024 Approved Deciphering the Variance Between Metaverse and Multi-Meva Environments</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-efficient-audio-documentation-in-academia-using-macs/"><u>[Updated] In 2024, Efficient Audio Documentation in Academia Using Macs</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-mp3s-on-android-the-best-free-tools/"><u>2024 Approved Mastering MP3s on Android - The Best Free Tools</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/a-beginners-guide-to-unzipping-files-with-minimal-hassle/"><u>A Beginner's Guide to Unzipping Files with Minimal Hassle</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/como-mover-tu-sistema-completo-del-disco-duro-al-ssd-manteniendo-la-configuracion-actual-de-windows/"><u>Cómo Mover Tu Sistema Completo Del Disco Duro Al SSD Manteniendo La Configuración Actual De Windows</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/complete-guide-to-retrieving-lost-webm-videos/"><u>Complete Guide to Retrieving Lost WebM Videos</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/detaillierte-anleitung-zum-durchfuhren-eines-vollstandigen-neustarts-auf-ihrem-iphone-modell-14131211x-was-sie-wissen-mussen/"><u>Detaillierte Anleitung Zum Durchführen Eines Vollständigen Neustarts Auf Ihrem iPhone-Modell 14/13/12/11/X – Was Sie Wissen Müssen</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/direct-connectivity-ios-and-android-file-relay/"><u>Direct Connectivity IOS & Android File Relay</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/exklusive-auswahl-an-automatischen-backup-programmen-fur-usb-gerate-unter-verschiedenen-windows-versionen/"><u>Exklusive Auswahl an Automatischen Backup-Programmen Für USB-Geräte Unter Verschiedenen Windows-Versionen</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-must-know-about-youtube-shorts-explained/"><u>In 2024, The Must-Know About YouTube Shorts Explained</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/ou-sont-stockes-les-documents-effaces-de-votre-cle-usb-corbeille-ou-autre-emplacement/"><u>Où Sont Stockés Les Documents Effacés De Votre Clé USB : Corbeille Ou Autre Emplacement ?</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/pasangan-petualang-langkah-langkah-menyimpan-tambahan-rekapitulasi-itunes-di-sistem-operasi-windows/"><u>Pasangan Petualang: Langkah-Langkah Menyimpan Tambahan Rekapitulasi iTunes Di Sistem Operasi Windows</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-connecting-your-iphone-with-pcs-running-windows-10-or-11-for-seamless-file-sharing/"><u>Step-by-Step Guide: Connecting Your iPhone with PCs Running Windows 10 or 11 for Seamless File Sharing</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-tutorial-making-wmv-videos-compatible-with-iphones-for-seamless-viewing/"><u>Step-by-Step Tutorial: Making WMV Videos Compatible with iPhones for Seamless Viewing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/troubleshooting-system-restore-issues-on-windows-11-discover-the-top-9-solutions/"><u>Troubleshooting System Restore Issues on Windows 11: Discover the Top 9 Solutions!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-tech-experts-are-praising-the-apple-ipad-pro-2018-as-the-ultimate-choice-in-11-inch-tablets/"><u>Why Tech Experts Are Praising the Apple iPad Pro (2018) as the Ultimate Choice in 11-Inch Tablets</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-proven-linux-programs-for-flawless-screen-captures/"><u>[New] Proven Linux Programs for Flawless Screen Captures</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-essential-guide-to-podcast-creation-in-garageband/"><u>[Updated] The Essential Guide to Podcast Creation in GarageBand</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/1728472247696-windows-11/"><u>『システム要件を満たしていない...』マークを削除する Windows 11 ガイド</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/critical-errors-to-dodge-with-the-apple-vision-pro-protect-your-investment-and-maximize-gains/"><u>Critical Errors to Dodge with the Apple Vision Pro: Protect Your Investment and Maximize Gains!</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/erstellen-einer-sicheren-bildkopie-von-ihrer-sd-speicherkarte-tipps-und-tricks/"><u>Erstellen Einer Sicheren Bildkopie Von Ihrer SD-Speicherkarte - Tipps Und Tricks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-oneplus-open-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-ideal-choices-for-comprehensive-movement-recording/"><u>In 2024, Ideal Choices for Comprehensive Movement Recording</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/maximize-savings-on-tech-essentials-get-an-extra-150-off-with-every-mac-or-ipad-purchase-for-students/"><u>Maximize Savings on Tech Essentials! Get an Extra $150 Off with Every Mac or iPad Purchase for Students</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-premiere-pro-transitions-expert-approved-plugins-for-stunning-videos/"><u>New In 2024, Premiere Pro Transitions Expert-Approved Plugins for Stunning Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/stepping-up-advanced-techniques-for-w11-gamers-for-2024/"><u>Stepping Up Advanced Techniques for W11 Gamers for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/titre-seo-guide-etape-par-etape-pour-sauvegarder-windows/"><u>Titre SEO: Guide Étape Par Étape Pour Sauvegarder Windows</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/troubleshooting-guide-why-is-my-wd-my-passport-ultra-not-detected/"><u>Troubleshooting Guide: Why Is My WD My Passport Ultra Not Detected?</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/windows-11-quick-fix-for-scanner-errors/"><u>Windows 11: Quick Fix for Scanner Errors</u></a></li>
 </ul></div>
 

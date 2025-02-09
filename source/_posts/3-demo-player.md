@@ -1,7 +1,7 @@
 ---
 title: 3 Demo Player
-date: 2025-01-20T05:57:35.286Z
-updated: 2025-01-27T01:15:03.654Z
+date: 2025-02-04T00:40:13.159Z
+updated: 2025-02-09T02:33:50.328Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,18 +46,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-alternatives-to-googles-ar-interactive-graphics/"><u>[Updated] 2024 Approved Alternatives to Google's AR Interactive Graphics</u></a></li>
-<li><a href="https://article-files.techidaily.com/curated-lists-of-websites-offering-youtube-tone-purchases-for-2024/"><u>Curated Lists of Websites Offering YouTube Tone Purchases for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/guia-detallada-para-ejecutar-la-herramienta-de-preparacion-del-sistema-sysprep-en-windows-11-y-10-un-enfoque-paso-por-paso/"><u>Guía Detallada Para Ejecutar La Herramienta De Preparación Del Sistema (Sysprep) en Windows 11 Y 10: Un Enfoque Paso Por Paso</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-honor-magic-5-pro-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Honor Magic 5 Pro Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/how-to-safely-migrate-virtual-machines-between-esxi-hosts-using-command-line/"><u>How to Safely Migrate Virtual Machines Between ESXi Hosts Using Command Line</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-apple-iphone-13-without-a-passcode-drfone-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your Apple iPhone 13 Without a Passcode | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Itel P55T | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/step-by-step-tutorial-for-iphone-and-ipad-users-how-to-enjoy-amazons-azw3-books/"><u>Step-by-Step Tutorial for iPhone & iPad Users - How to Enjoy Amazon's AZW3 Books</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/strategie-efficaci-per-superare-i-problemi-al-recupero-di-windows-nove-versione-11-che-non-stanno-funzionando/"><u>Strategie Efficaci per Superare I Problemi Al Recupero Di Windows Nove Versione 11 Che Non Stanno Funzionando</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/strategies-to-arrange-content-in-youtube-media/"><u>Strategies to Arrange Content in YouTube Media</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-oppo-reno-10-pro-5g-by-drfone-android/"><u>Three Ways to Sim Unlock Oppo Reno 10 Pro 5G</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/ultimate-troubleshooting-techniques-for-system-thread-exception-not-handled-errors-on-windows-10-top-5-methods/"><u>Ultimate Troubleshooting Techniques for System Thread Exception Not Handled Errors on Windows 10 (Top 5 Methods)</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/windows-11-incremental-vs-differential-backup-strategies-explained/"><u>Windows 11: Incremental Vs. Differential Backup Strategies Explained</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-use-of-analytics/"><u>[New] In 2024, Use of Analytics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-boost-brand-visibility-with-smart-strategies-in-instagram-videos-for-2024/"><u>[Updated] Boost Brand Visibility with Smart Strategies in Instagram Videos for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/bring-your-videos-to-life-top-text-animation-apps-for-android-and-ios-for-2024/"><u>Bring Your Videos to Life Top Text Animation Apps for Android and iOS for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/choosing-the-right-digital-coin-expert-tips-from-yl-computings-guide/"><u>Choosing the Right Digital Coin: Expert Tips From YL Computing's Guide</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/diy-guide-to-repair-disk-drive-problems-for-better-performance-advice-by-yl-software-experts/"><u>DIY Guide to Repair Disk Drive Problems for Better Performance - Advice by YL Software Experts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-create-a-youtube-account-for-2024/"><u>How to Create a YouTube Account for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c12-phone-without-google-account-by-drfone-android/"><u>How to Unlock Nokia C12 Phone without Google Account?</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/identifying-and-resolving-gpu-issues-tips-straight-from-yl-software-experts/"><u>Identifying and Resolving GPU Issues - Tips Straight From YL Software Experts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-lava-blaze-2-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Lava Blaze 2</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/lauren-german-artwork-collection-high-quality-backgrounds-prints-and-digital-media-by-yl-computing/"><u>Lauren German Artwork Collection - High-Quality Backgrounds, Prints and Digital Media by YL Computing</u></a></li>
+<li><a href="https://games-able.techidaily.com/mastering-the-process-of-starting-display-drivers-correctly-in-winoses/"><u>Mastering the Process of Starting Display Drivers Correctly in WinOSes</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/optimize-your-pc-performance-with-disk-defragmentation-tips-from-yl-computings-expertise/"><u>Optimize Your PC Performance with Disk Defragmentation - Tips From YL Computing's Expertise</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/resizing-your-windows-taskbar-via-control-panel-a-step-by-step-guide-tips-from-yl-computing/"><u>Resizing Your Windows Taskbar via Control Panel: A Step-by-Step Guide - Tips From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/retrieving-files-from-your-outdated-unbootable-hard-drive-with-yl-software-techniques/"><u>Retrieving Files From Your Outdated, Unbootable Hard Drive with YL Software Techniques</u></a></li>
+<li><a href="https://discover-help.techidaily.com/step-by-step-tutorial-for-shifting-images-from-your-ios-device-to-a-windows-desktop-environment-windows-1011/"><u>Step-by-Step Tutorial for Shifting Images From Your iOS Device to a Windows Desktop Environment (Windows 10/11)</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211122682-9781398838130-true-irish-ghost-stories/"><u>True Irish Ghost Stories | Free Book</u></a></li>
 </ul></div>
 
