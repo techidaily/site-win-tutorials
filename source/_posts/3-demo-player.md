@@ -1,7 +1,7 @@
 ---
 title: 3 Demo Player
-date: 2025-02-04T00:40:13.159Z
-updated: 2025-02-09T02:33:50.328Z
+date: 2025-02-11T17:00:53.462Z
+updated: 2025-02-19T02:14:12.230Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,21 +46,19 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-use-of-analytics/"><u>[New] In 2024, Use of Analytics</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-boost-brand-visibility-with-smart-strategies-in-instagram-videos-for-2024/"><u>[Updated] Boost Brand Visibility with Smart Strategies in Instagram Videos for 2024</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/bring-your-videos-to-life-top-text-animation-apps-for-android-and-ios-for-2024/"><u>Bring Your Videos to Life Top Text Animation Apps for Android and iOS for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/choosing-the-right-digital-coin-expert-tips-from-yl-computings-guide/"><u>Choosing the Right Digital Coin: Expert Tips From YL Computing's Guide</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/diy-guide-to-repair-disk-drive-problems-for-better-performance-advice-by-yl-software-experts/"><u>DIY Guide to Repair Disk Drive Problems for Better Performance - Advice by YL Software Experts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/o-create-a-youtube-account-for-2024/"><u>How to Create a YouTube Account for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c12-phone-without-google-account-by-drfone-android/"><u>How to Unlock Nokia C12 Phone without Google Account?</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/identifying-and-resolving-gpu-issues-tips-straight-from-yl-software-experts/"><u>Identifying and Resolving GPU Issues - Tips Straight From YL Software Experts</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-lava-blaze-2-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Lava Blaze 2</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/lauren-german-artwork-collection-high-quality-backgrounds-prints-and-digital-media-by-yl-computing/"><u>Lauren German Artwork Collection - High-Quality Backgrounds, Prints and Digital Media by YL Computing</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastering-the-process-of-starting-display-drivers-correctly-in-winoses/"><u>Mastering the Process of Starting Display Drivers Correctly in WinOSes</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/optimize-your-pc-performance-with-disk-defragmentation-tips-from-yl-computings-expertise/"><u>Optimize Your PC Performance with Disk Defragmentation - Tips From YL Computing's Expertise</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/resizing-your-windows-taskbar-via-control-panel-a-step-by-step-guide-tips-from-yl-computing/"><u>Resizing Your Windows Taskbar via Control Panel: A Step-by-Step Guide - Tips From YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/retrieving-files-from-your-outdated-unbootable-hard-drive-with-yl-software-techniques/"><u>Retrieving Files From Your Outdated, Unbootable Hard Drive with YL Software Techniques</u></a></li>
-<li><a href="https://discover-help.techidaily.com/step-by-step-tutorial-for-shifting-images-from-your-ios-device-to-a-windows-desktop-environment-windows-1011/"><u>Step-by-Step Tutorial for Shifting Images From Your iOS Device to a Windows Desktop Environment (Windows 10/11)</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211122682-9781398838130-true-irish-ghost-stories/"><u>True Irish Ghost Stories | Free Book</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-engagement-professional-tips-for-youtube-video-tweaks/"><u>[Updated] 2024 Approved Elevating Engagement Professional Tips for YouTube Video Tweaks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-crafting-excellence-essential-tips-for-ginger-island-life/"><u>[Updated] Crafting Excellence Essential Tips for Ginger Island Life</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725288328265-netflix/"><u>新型コロナ時代の家庭で楽しむ! Netflix上のおススメ映画リスト</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-oppo-reno-11-pro-5g-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Oppo Reno 11 Pro 5G.</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/easy-steps-for-upgrading-your-graphic-card-drivers-on-pcs-with-windows-expert-advice-from-yl-computing-software-team/"><u>Easy Steps for Upgrading Your Graphic Card Drivers on PCs with Windows - Expert Advice From YL Computing Software Team</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/guide-navigating-to-device-manager-from-control-panel-on-your-pc-with-yl-software-help/"><u>Guide: Navigating to Device Manager From Control Panel on Your PC with YL Software Help</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-to-update-your-graphics-card-drivers-a-guide-by-yl-computing/"><u>How to Update Your Graphics Card Drivers: A Guide by YL Computing</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-discover-top-10-budget-friendly-high-quality-webcams/"><u>In 2024, Discover Top 10 Budget-Friendly, High-Quality Webcams</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pro-photoshop-power-top-10-canva-design-secrets/"><u>In 2024, Pro Photoshop Power Top 10 Canva Design Secrets</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/realistic-flaming-motion-wallpaper-in-high-definition-1080p-seamless-loop-by-yl-computing/"><u>Realistic Flaming Motion Wallpaper in High Definition - 1080P Seamless Loop by YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/thor-love-and-thunder-stunning-wallpapers-and-backgrounds-by-yl-computing/"><u>Thor: Love & Thunder - Stunning Wallpapers & Backgrounds by YL Computing</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unparalleled-flexibility-and-stunning-visuals-a-review-of-an-exceptional-laptop-with-top-notch-display-insights-from-zdnet/"><u>Unparalleled Flexibility & Stunning Visuals: A Review of an Exceptional Laptop with Top-Notch Display - Insights From ZDNet</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/yl-software-tips-maximizing-battery-life-with-power-saving-mode/"><u>YL Software Tips: Maximizing Battery Life with Power Saving Mode</u></a></li>
 </ul></div>
 

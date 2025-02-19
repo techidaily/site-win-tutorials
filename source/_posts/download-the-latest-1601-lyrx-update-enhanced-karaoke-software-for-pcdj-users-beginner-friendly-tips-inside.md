@@ -1,7 +1,7 @@
 ---
 title: Download the Latest 1.6.0.1 LYRX Update – Enhanced Karaoke Software for PCDJ Users | Beginner-Friendly Tips Inside
-date: 2025-02-01T16:44:29.065Z
-updated: 2025-02-09T00:43:40.825Z
+date: 2025-02-14T03:04:43.918Z
+updated: 2025-02-18T22:49:00.358Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/7d541f24f083a78654b60cdafb0ff977b1be425e9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.1 of LYRX karaoke software is available for download.
@@ -33,7 +33,7 @@ Again, we appreciate all the assistance and feedback we’ve received from LYRX 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a fully-functional free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.1
@@ -55,7 +55,7 @@ If you still can’t access any audio from the inputs follow these steps:
 _Have questions about the latest 1.6.0.1 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -77,18 +77,17 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover.jpg?fit=1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-detailed-steps-for-a-flawless-ps3-gameplay-recording-process/"><u>[New] 2024 Approved Detailed Steps for a Flawless PS3 Gameplay Recording Process</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-top-sites-for-digital-metallic-text-with-a-golden-twist/"><u>[New] Top Sites for Digital Metallic Text with a Golden Twist</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-from-audience-to-advocate-strategies-for-powerful-fb-covers/"><u>[Updated] 2024 Approved From Audience to Advocate Strategies for Powerful FB Covers</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-simplified-guide-for-ios-users-transforming-images-to-pdfs/"><u>[Updated] Simplified Guide for iOS Users Transforming Images to PDFs</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/1728503154135-windows-10windows-11/"><u>双系统软件版本间无缝切换：从Windows 10到Windows 11的步骤</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/converse-confidently-in-german-with-these-25-must-know-phrases/"><u>Converse Confidently in German with These 25 Must-Know Phrases</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/cing-visual-impact-a-guide-to-jump-cut-techniques/"><u>Enhancing Visual Impact A Guide to Jump Cut Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-guide-the-top-10-inexpensive-youtube-channels-for-visual-creators/"><u>In 2024, Essential Guide The Top 10 Inexpensive YouTube Channels for Visual Creators</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/mastering-network-booting-with-pxe-on-the-latest-windows-n-operating-system/"><u>Mastering Network Booting with PXE on the Latest Windows N Operating System</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-era-for-mobile-photography-iphone-x-explored-for-2024/"><u>New Era for Mobile Photography IPhone X Explored for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/top-15-low-cost-mechanical-mice-reviews/"><u>Top 15 Low-Cost Mechanical Mice Reviews</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/top-free-disk-cloning-programs-for-windows-10-and-11-a-comprehensive-guide/"><u>Top Free Disk Cloning Programs for Windows 10 & 11: A Comprehensive Guide</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/1728498080314-windows-11windows-7/"><u>データ保護を最優先に、簡単な手順でWindows 11からWindows 7に変更する方法</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-fb-live-tv-broadcast-4-innovative-methods/"><u>[New] 2024 Approved FB Live TV Broadcast 4 Innovative Methods</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-lively-registration-and-unregistration-guide/"><u>[Updated] 2024 Approved Lively Registration & Unregistration Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1715859721889-updated-eco-friendly-recorder-ads-absolved/"><u>[Updated] Eco-Friendly Recorder - Ads Absolved!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-evaluating-rapid-subscriptions-impact-on-video-engagement/"><u>[Updated] In 2024, Evaluating Rapid Subscription's Impact on Video Engagement</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/comprendere-e-installare-un-nvme-ssd-in-uno-slot-unico-una-procedura-dettagliata-passo-passo/"><u>Comprendere E Installare Un NVMe SSD in Uno Slot Unico: Una Procedura Dettagliata Passo-Passo!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/exploring-the-world-of-digital-video-recorders-what-do-they-do/"><u>Exploring The World Of Digital Video Recorders - What Do They Do?</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/guia-detallada-para-ejecutar-la-herramienta-de-preparacion-del-sistema-sysprep-en-windows-11-y-10-un-enfoque-paso-por-paso/"><u>Guía Detallada Para Ejecutar La Herramienta De Preparación Del Sistema (Sysprep) en Windows 11 Y 10: Un Enfoque Paso Por Paso</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-to-safely-migrate-virtual-machines-between-esxi-hosts-using-command-line/"><u>How to Safely Migrate Virtual Machines Between ESXi Hosts Using Command Line</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-apowersoft-unveils-new-pc-screen-capture-tech/"><u>In 2024, Apowersoft Unveils New PC Screen Capture Tech</u></a></li>
+<li><a href="https://win-answers.techidaily.com/masterful-fix-when-easy-anti-cheat-is-uninstalled-no-more-eac-errors-a-comprehensive-guide/"><u>Masterful Fix: When Easy Anti-Cheat Is Uninstalled, No More EAC Errors – A Comprehensive Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-true-performance-needs-how-quick-should-your-pc-function/"><u>Unveiling True Performance Needs: How Quick Should Your PC Function?</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/windows-11-incremental-vs-differential-backup-strategies-explained/"><u>Windows 11: Incremental Vs. Differential Backup Strategies Explained</u></a></li>
 </ul></div>
 

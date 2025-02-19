@@ -1,7 +1,7 @@
 ---
 title: "Mastering DJ Programming: Crafting Personalized DEX 3 Scripts Using PCDJ Documentation and Tutorials"
-date: 2025-02-07T21:11:37.209Z
-updated: 2025-02-08T23:10:34.763Z
+date: 2025-02-13T23:37:26.027Z
+updated: 2025-02-19T05:28:37.953Z
 tags:
   - product
 categories:
@@ -30,7 +30,7 @@ DEX 3 and RED Mobile 3 Default DJ Controller scripts are stored in: App folder (
 [Download DEX 3 Actions And Notifications Documentation](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -52,18 +52,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2015/04/scripting-coverimage.jpg?f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-proven-linux-programs-for-flawless-screen-captures/"><u>[New] Proven Linux Programs for Flawless Screen Captures</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-essential-guide-to-podcast-creation-in-garageband/"><u>[Updated] The Essential Guide to Podcast Creation in GarageBand</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/1728472247696-windows-11/"><u>『システム要件を満たしていない...』マークを削除する Windows 11 ガイド</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/critical-errors-to-dodge-with-the-apple-vision-pro-protect-your-investment-and-maximize-gains/"><u>Critical Errors to Dodge with the Apple Vision Pro: Protect Your Investment and Maximize Gains!</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/erstellen-einer-sicheren-bildkopie-von-ihrer-sd-speicherkarte-tipps-und-tricks/"><u>Erstellen Einer Sicheren Bildkopie Von Ihrer SD-Speicherkarte - Tipps Und Tricks</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-oneplus-open-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For OnePlus Open | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-ideal-choices-for-comprehensive-movement-recording/"><u>In 2024, Ideal Choices for Comprehensive Movement Recording</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/maximize-savings-on-tech-essentials-get-an-extra-150-off-with-every-mac-or-ipad-purchase-for-students/"><u>Maximize Savings on Tech Essentials! Get an Extra $150 Off with Every Mac or iPad Purchase for Students</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-premiere-pro-transitions-expert-approved-plugins-for-stunning-videos/"><u>New In 2024, Premiere Pro Transitions Expert-Approved Plugins for Stunning Videos</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/stepping-up-advanced-techniques-for-w11-gamers-for-2024/"><u>Stepping Up Advanced Techniques for W11 Gamers for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/titre-seo-guide-etape-par-etape-pour-sauvegarder-windows/"><u>Titre SEO: Guide Étape Par Étape Pour Sauvegarder Windows</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/troubleshooting-guide-why-is-my-wd-my-passport-ultra-not-detected/"><u>Troubleshooting Guide: Why Is My WD My Passport Ultra Not Detected?</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/windows-11-quick-fix-for-scanner-errors/"><u>Windows 11: Quick Fix for Scanner Errors</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-perfect-video-title-generators-for-youtube/"><u>[New] 2024 Approved Perfect Video Title Generators for YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-navigating-youtubes-creative-commons-framework-effectively/"><u>[Updated] Navigating YouTube's Creative Commons Framework Effectively</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mastering-the-edit-a-comprehensive-look-at-title-and-description-for-igtv/"><u>2024 Approved Mastering the Edit A Comprehensive Look at Title & Description for IGTV</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-for-security-reasons-from-iphone-6s-find-the-best-solution-here-by-drfone-ios/"><u>Apple ID Locked for Security Reasons From iPhone 6s? Find the Best Solution Here</u></a></li>
+<li><a href="https://win-answers.techidaily.com/comprehensive-steps-to-stop-risk-of-rain-2-from-freezing-or-crashing-on-your-pc-and-console/"><u>Comprehensive Steps To Stop Risk of Rain 2 From Freezing or Crashing on Your PC & Console.</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/download-the-latest-dex-32-dj-mixing-software-from-pioneer-new-features-and-improvements/"><u>Download the Latest DEX 3.2 DJ Mixing Software From Pioneer - New Features & Improvements!</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/download-the-latest-dj-software-update-dex-problem/"><u>Download the Latest DJ Software Update! DEX # Problem</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/exceptional-top-ten-nintendo-switch-combat-games-max-156-for-2024/"><u>Exceptional Top Ten Nintendo Switch Combat Games (Max 156) for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-to-fix-a-broken-computer-power-supply-expert-tips-from-yl-computing/"><u>How to Fix a Broken Computer Power Supply: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-oppo-reno-10-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-to-resolve-system-failure-during-graphics-card-driver-update-a-guide-by-yl-computing/"><u>How to Resolve System Failure During Graphics Card Driver Update - A Guide by YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/newest-tunes-on-demand-exclusive-karaoke-playlist-of-the-week-discover-hit-singles-from-february-2-2017/"><u>Newest Tunes on Demand! Exclusive Karaoke Playlist of the Week | Discover Hit Singles From February 2, 2017</u></a></li>
+<li><a href="https://techtrends.techidaily.com/solving-d3dx927dll-file-not-detected-a-comprehensive-guide/"><u>Solving d3dx9_27.dll File Not Detected - A Comprehensive Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/ultimate-guide-maximizing-your-security-with-windows-defender-tips-and-tricks-from-yl-computing/"><u>Ultimate Guide: Maximizing Your Security with Windows Defender - Tips & Tricks From YL Computing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/understanding-laptop-battery-health-when-to-replace-or-repair-advice-by-yl-software-experts/"><u>Understanding Laptop Battery Health: When to Replace or Repair - Advice by YL Software Experts</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/understanding-the-role-of-a-gpu-insights-from-yl-computing-and-yl-software/"><u>Understanding the Role of a GPU: Insights From YL Computing and YL Software</u></a></li>
 </ul></div>
 

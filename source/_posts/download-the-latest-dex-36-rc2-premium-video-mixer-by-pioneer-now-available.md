@@ -1,7 +1,7 @@
 ---
 title: "Download the Latest DEX 3.6 (RC2): Premium Video Mixer by Pioneer - Now Available!"
-date: 2025-02-04T21:56:31.543Z
-updated: 2025-02-08T17:24:07.387Z
+date: 2025-02-16T01:10:37.746Z
+updated: 2025-02-19T03:17:15.923Z
 tags:
   - product
 categories:
@@ -59,7 +59,7 @@ Since this is likely going to be the official DEX 3 **DJ and Video Mixing softwa
 _If you have any questions or problems running the DEX 3.6 **VDJ Software** beta version please post to the [DEX 3 user forum](https://tools.techidaily.com/pcdj/products/)._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -81,20 +81,18 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-rc2-coverimage.jpg?f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-precision-capturing-for-your-ps3-gaming-adventures/"><u>[New] Precision Capturing for Your PS3 Gaming Adventures</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-straightforward-strategies-accessing-appreciated-comments-on-youtube/"><u>[Updated] Straightforward Strategies Accessing Appreciated Comments on YouTube</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-writers-guide-to-dialogic-depth-in-screenplays/"><u>[Updated] The Writers' Guide to Dialogic Depth in Screenplays</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/mp3cd2024-cdmp3/"><u>「MP3化CD：2024最新指南 - 轉換CD成MP3的簡單步驟」</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/como-transferir-oem-de-windows-10-o-11-a-un-nuevo-hdd-guia-paso-a-paso/"><u>Cómo Transferir OEM De Windows 10 O 11 a Un Nuevo HDD: Guía Paso a Paso</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/comprehensive-guide-reverting-to-original-windows-system-preferences/"><u>Comprehensive Guide: Reverting to Original Windows System Preferences</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/current-top-10-sport-themed-cinematic-masterpieces-worth-watching/"><u>Current Top 10 Sport-Themed Cinematic Masterpieces Worth Watching</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/free-windows-11-migration-clone-software-transfer-data-and-incorporating-power-words-such-as-top-tools-and-expert-guide/"><u>Free, Windows 11, Migration, Clone Software, Transfer, Data, and Incorporating Power Words Such as Top Tools and Expert Guide.</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/guide-etape-par-etape-comment-se-faire-une-copie-de-securite-du-systeme-dexploitation-windows-nouvelle-generation/"><u>Guide Étape Par Étape : Comment Se Faire Une Copie De Sécurité Du Système D'exploitation Windows Nouvelle Génération ?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy A24 | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/screen-recording-face-off-bandicam-vs-camtasias-features/"><u>Screen Recording Face-Off Bandicam vs Camtasia's Features</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/simple-fixes-for-successful-dism-repairs-on-your-windows-server-2erry-to-your-request-here-are-two-new-seo-titles-designed-for-google-search-engine-optimiza266/"><u>Simple Fixes for Successful DISM Repairs on Your Windows Server 2Erry to Your Request, Here Are Two New SEO Titles Designed for Google Search Engine Optimization that Convey Similar Meanings to the Provided Example:</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/ultimate-tutorial-on-configuring-your-vmware-host-with-the-ideal-ethernet-controller/"><u>Ultimate Tutorial on Configuring Your VMware Host with the Ideal Ethernet Controller</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/unable-to-clear-recycle-bin-in-windows-11-discover-4-effective-solutions/"><u>Unable to Clear Recycle Bin in Windows 11? Discover 4 Effective Solutions!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Motorola Razr 40? | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-swift-solution-tweeting-videos-not-functioning-chrome/"><u>[New] 2024 Approved Swift Solution Tweeting Videos Not Functioning Chrome</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-channel-king-and-queen-academy-youtube-excellence/"><u>[Updated] 2024 Approved Channel King & Queen Academy YouTube Excellence</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-30fps-versus-60fps-best-choice-for-clear-video-capture/"><u>[Updated] In 2024, 30Fps versus 60Fps - Best Choice for Clear Video Capture</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-crafting-captivating-facebook-biographies-a-comprehensive-guide/"><u>[Updated] In 2024, Crafting Captivating Facebook Biographies - A Comprehensive Guide</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/1-discover-latest-excel-documents-on-your-pc-a-comprehensive-guide/"><u>1. Discover Latest Excel Documents on Your PC: A Comprehensive Guide</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/complete-guide-securely-syncing-your-iphone-1415-with-icloud/"><u>Complete Guide: Securely Syncing Your iPhone 14/15 with iCloud</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/dual-methods-for-crafting-a-windows-11-rescue-disk-via-usb-a-step-by-step-guide/"><u>Dual Methods for Crafting a Windows 11 Rescue Disk via USB: A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/ganzheitlicher-ratgeber-wie-verschwundene-daten-wiederhergestellt-werden-konnen/"><u>Ganzheitlicher Ratgeber: Wie Verschwundene Daten Wiederhergestellt Werden Können?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-lava-blaze-2-pro-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Lava Blaze 2 Pro to PC? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-tecno-pop-7-pro-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Tecno Pop 7 Pro Phone that is Locked?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-poco-x6-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Poco X6 Phone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/strategies-for-effective-digital-video-photo-alteration-for-2024/"><u>Strategies for Effective Digital Video Photo Alteration for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/troubleshooting-steps-to-locate-reset-this-pc-feature-on-windows-11/"><u>Troubleshooting Steps to Locate 'Reset This PC' Feature on Windows 11</u></a></li>
 </ul></div>
 

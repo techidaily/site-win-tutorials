@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Legacy of Sun Yat-Sen: His Enduring Impact Explored by YL Computing & YL Software"
-date: 2025-02-05T00:46:30.765Z
-updated: 2025-02-08T20:25:05.744Z
+date: 2025-02-17T22:41:31.478Z
+updated: 2025-02-19T07:31:29.122Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,18 +56,14 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-expert-video-editing-techniques-for-instagram-success-for-2024/"><u>[Updated] Expert Video Editing Techniques for Instagram Success for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-top-strategies-for-zoom-use-with-a-chrome-os-device/"><u>2024 Approved Top Strategies for Zoom Use with a Chrome OS Device</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/como-mover-tu-sistema-completo-del-disco-duro-al-ssd-manteniendo-la-configuracion-actual-de-windows/"><u>Cómo Mover Tu Sistema Completo Del Disco Duro Al SSD Manteniendo La Configuración Actual De Windows</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/complete-guide-to-retrieving-lost-webm-videos/"><u>Complete Guide to Retrieving Lost WebM Videos</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/does-ai-limit-response-length-characterswords/"><u>Does AI Limit Response Length: Characters/Words?</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Honor X50i+? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/oneplus-11-5g-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>OnePlus 11 5G Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/hot-pursuit-of-snaps-tactics-for-uninterrupted-streaks/"><u>Hot Pursuit of Snaps - Tactics for Uninterrupted Streaks</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-activate-a-black-background-in-wincalc/"><u>How To Activate a Black Background in WinCalc</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/instrucciones-faciles-de-actualizar-el-disco-duro-principal-con-ssd-bajo-windows-10/"><u>Instrucciones Fáciles De Actualizar El Disco Duro Principal Con SSD Bajo Windows 10</u></a></li>
 <li><a href="https://win-tutorials.techidaily.com/ou-sont-stockes-les-documents-effaces-de-votre-cle-usb-corbeille-ou-autre-emplacement/"><u>Où Sont Stockés Les Documents Effacés De Votre Clé USB : Corbeille Ou Autre Emplacement ?</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723015886595-quick-fix-for-when-your-discord-voice-chat-stays-silent-ptt-problems-solved/"><u>Quick Fix for When Your Discord Voice Chat Stays Silent: PTT Problems Solved!</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-the-issue-of-sporadic-boot-ups-for-a-stable-computer-experience/"><u>Resolving the Issue of Sporadic Boot-Ups for a Stable Computer Experience</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-errors-for-a-successful-launch-of-evil-genius-2/"><u>Overcoming Errors for a Successful Launch of Evil Genius 2</u></a></li>
 <li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-preserving-your-files-before-formatting-with-windows-windows-11-10-8-and-7/"><u>Step-by-Step Guide: Preserving Your Files Before Formatting with Windows (Windows 11, 10, 8 & 7)</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-claude-pro-a-comparison-with-microsofts-chatgpt-plus/"><u>Understanding Claude Pro: A Comparison with Microsoft's ChatGPT Plus</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/1722865795556-water-damage-woes-heres-how-to-recover-and-repair-your-iphoneipod/"><u>Water Damage Woes? Here's How to Recover and Repair Your iPhone/iPod!</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210347692-9782226422781-turbulences-dans-l-univers/"><u>Turbulences dans l univers | Free Book</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725286269610-winxvideo-ai/"><u>Winxvideo AI 使用者發來最常見的技術問題與解決方案</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/1728463682996-windows/"><u>インストール後に調整されたディスク - Windowsの設定を適用できない</u></a></li>
 </ul></div>
 
