@@ -1,7 +1,7 @@
 ---
 title: "Mastering DJ Programming: Crafting Personalized DEX 3 Scripts Using PCDJ Documentation and Tutorials"
-date: 2025-02-13T23:37:26.027Z
-updated: 2025-02-19T05:28:37.953Z
+date: 2025-03-03T21:12:22.938Z
+updated: 2025-03-07T19:30:05.232Z
 tags:
   - product
 categories:
@@ -29,10 +29,6 @@ DEX 3 and RED Mobile 3 Default DJ Controller scripts are stored in: App folder (
 
 [Download DEX 3 Actions And Notifications Documentation](https://tools.techidaily.com/pcdj/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Related_
 
 https://i1.wp.com/pcdj.com/wp-content/uploads/2015/04/scripting-coverimage.jpg?fit=550%2C312&ssl=1 312 550 Ryan Sherr https://www.pcdj.com/wp-content/uploads/2021/07/pcdj-main-logo-2.png Ryan Sherr2015-04-06 13:30:232023-04-10 17:04:26DJ Software Tip| Documentation For Creating Your Own DEX 3 DJ Controller Scripts}
@@ -52,22 +48,20 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2015/04/scripting-coverimage.jpg?f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-perfect-video-title-generators-for-youtube/"><u>[New] 2024 Approved Perfect Video Title Generators for YouTube</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-navigating-youtubes-creative-commons-framework-effectively/"><u>[Updated] Navigating YouTube's Creative Commons Framework Effectively</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-mastering-the-edit-a-comprehensive-look-at-title-and-description-for-igtv/"><u>2024 Approved Mastering the Edit A Comprehensive Look at Title & Description for IGTV</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-for-security-reasons-from-iphone-6s-find-the-best-solution-here-by-drfone-ios/"><u>Apple ID Locked for Security Reasons From iPhone 6s? Find the Best Solution Here</u></a></li>
-<li><a href="https://win-answers.techidaily.com/comprehensive-steps-to-stop-risk-of-rain-2-from-freezing-or-crashing-on-your-pc-and-console/"><u>Comprehensive Steps To Stop Risk of Rain 2 From Freezing or Crashing on Your PC & Console.</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/download-the-latest-dex-32-dj-mixing-software-from-pioneer-new-features-and-improvements/"><u>Download the Latest DEX 3.2 DJ Mixing Software From Pioneer - New Features & Improvements!</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/download-the-latest-dj-software-update-dex-problem/"><u>Download the Latest DJ Software Update! DEX # Problem</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/exceptional-top-ten-nintendo-switch-combat-games-max-156-for-2024/"><u>Exceptional Top Ten Nintendo Switch Combat Games (Max 156) for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/how-to-fix-a-broken-computer-power-supply-expert-tips-from-yl-computing/"><u>How to Fix a Broken Computer Power Supply: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-oppo-reno-10-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/how-to-resolve-system-failure-during-graphics-card-driver-update-a-guide-by-yl-computing/"><u>How to Resolve System Failure During Graphics Card Driver Update - A Guide by YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/newest-tunes-on-demand-exclusive-karaoke-playlist-of-the-week-discover-hit-singles-from-february-2-2017/"><u>Newest Tunes on Demand! Exclusive Karaoke Playlist of the Week | Discover Hit Singles From February 2, 2017</u></a></li>
-<li><a href="https://techtrends.techidaily.com/solving-d3dx927dll-file-not-detected-a-comprehensive-guide/"><u>Solving d3dx9_27.dll File Not Detected - A Comprehensive Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Xiaomi 13T | Dr.fone</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/ultimate-guide-maximizing-your-security-with-windows-defender-tips-and-tricks-from-yl-computing/"><u>Ultimate Guide: Maximizing Your Security with Windows Defender - Tips & Tricks From YL Computing</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/understanding-laptop-battery-health-when-to-replace-or-repair-advice-by-yl-software-experts/"><u>Understanding Laptop Battery Health: When to Replace or Repair - Advice by YL Software Experts</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/understanding-the-role-of-a-gpu-insights-from-yl-computing-and-yl-software/"><u>Understanding the Role of a GPU: Insights From YL Computing and YL Software</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-does-your-channel-benefit-from-regular-youtube-payments/"><u>[New] In 2024, Does Your Channel Benefit From Regular YouTube Payments?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-streamlining-meetings-on-win11-using-zoom-features-for-2024/"><u>[Updated] Streamlining Meetings on Win11 Using Zoom Features for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/5ash5lu95lu75yqh57ut5p2f5zco5ywz6zet6k6h566x5py655qe5pa55rov/"><u>备份任务结束后关闭计算机的方法</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/enhanced-edit-suite-virtual-repair-tools/"><u>Enhanced Edit Suite: Virtual Repair Tools</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/guide-rapide-creation-dun-nouveau-comptoir-localise-sur-windows-11-trois-solutions-faciles-a-suivre/"><u>Guide Rapide: Création D'un Nouveau Comptoir Localisé Sur Windows 11 (Trois Solutions Faciles À Suivre)</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/hoe-je-uit-het-ogenblik-vergeten-item-terugkrijgt-kan-zijn-vier-mogelijke-weges/"><u>Hoe Je Uit Het Ogenblik Vergeten Item Terugkrijgt Kan Zijn - Vier Mogelijke Weges</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-stop-life360-from-tracking-you-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Samsung Galaxy A24? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/infuse-vibes-into-photos-via-ig-sounds/"><u>Infuse Vibes Into Photos via IG Sounds</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/pasos-detallados-para-una-instalacion-de-windows-11-pura-sin-necesidad-de-un-dispositivo-usb/"><u>Pasos Detallados Para Una Instalación De Windows 11 Pura Sin Necesidad De Un Dispositivo USB</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/recuperar-dados-apagados-no-windows-11-guia-gratuito-de-5-estrategias/"><u>Recuperar Dados Apagados No Windows 11: Guia Gratuito De 5 Estratégias</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/resolviendo-el-problema-cuando-la-funcion-createimage-no-funciona-con-dispositivos-usb-una-guia-detallada/"><u>Resolviendo El Problema Cuando La Función CreateImage No Funciona Con Dispositivos USB: Una Guía Detallada</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-physxloaderdll-file-not-detected-step-by-step-troubleshooting/"><u>Resolving 'PhysXLoader.dll' File Not Detected: Step-by-Step Troubleshooting</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/reveal-hidden-files-on-your-pc-top-7-methods-for-correcting-unseen-documents-in-windows-10-8-and-7/"><u>Reveal Hidden Files on Your PC: Top 7 Methods for Correcting Unseen Documents in Windows 10, 8 & 7</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unleash-efficiency-with-these-5-leading-non-root-clicker-tools-for-android-users/"><u>Unleash Efficiency with These 5 Leading Non-Root Clicker Tools for Android Users</u></a></li>
 </ul></div>
 

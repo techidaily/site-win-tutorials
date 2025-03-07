@@ -1,7 +1,7 @@
 ---
 title: "MacOS High Sierra Support in Dexed Loopers (DEX) Version 3 and Beyond: Unlocking Capabilities with LYRX Plugin on PCDJ"
-date: 2025-02-13T19:55:27.345Z
-updated: 2025-02-18T21:56:48.527Z
+date: 2025-03-01T22:06:36.159Z
+updated: 2025-03-07T19:07:25.218Z
 tags:
   - product
 categories:
@@ -35,10 +35,6 @@ Elevate your DJ game with [DEX 3](https://tools.techidaily.com/pcdj/products/) o
 
 _**PCDJ enables you to #MixEverything**_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Related_
 
 https://i1.wp.com/pcdj.com/wp-content/uploads/2017/09/macoshighsierra-coverimage.jpg?fit=706%2C360&ssl=1 360 706 Ryan Sherr https://www.pcdj.com/wp-content/uploads/2021/07/pcdj-main-logo-2.png Ryan Sherr2017-09-29 09:48:412018-10-02 12:58:08macOS High Sierra Is Supported In DEX 3, DEX 3 RE And LYRX}
@@ -58,17 +54,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/09/macoshighsierra-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-best-unsung-free-speech-to-text-apps-for-your-mac/"><u>[New] Best Unsung Free Speech-to-Text Apps for Your Mac</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-androids-animated-adventures-top-game-list/"><u>[Updated] In 2024, Android’s Animated Adventures – Top Game List</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-zippy-zoomers-prime-fastest-titles-for-touch-screens-and-tabs/"><u>[Updated] Zippy Zoomers Prime Fastest Titles for Touch Screens & Tabs</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-asus-rog-phone-8-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/complete-tutorial-on-preserving-system-data-using-advanced-tools-from-yl-computing/"><u>Complete Tutorial on Preserving System Data Using Advanced Tools From YL Computing</u></a></li>
-<li><a href="https://win-info.techidaily.com/easy-to-use-flash-drive-recovery-software-download-now-to-safely-retrieve-lost-data-for-free/"><u>Easy-to-Use Flash Drive Recovery Software - Download Now to Safely Retrieve Lost Data for Free!</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/ideas-for-efficiently-using-gopro-power-supplies-for-2024/"><u>Ideas for Efficiently Using GoPro Power Supplies for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/methods-to-accurately-measure-your-pcs-cpu-temperature-tech-insights-by-yl/"><u>Methods to Accurately Measure Your PC's CPU Temperature - Tech Insights by YL</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/pioneer-dj-systems-upgrade-deck-sets-with-ddj-rb-ddj-rr-and-enhanced-compatibility-for-djs/"><u>Pioneer DJ Systems Upgrade: Deck Sets with DDJ-RB, DDJ-RR, and Enhanced Compatibility for DJs</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/track-and-monitor-weth-balances-with-our-user-friendly-ethereum-wallet-tracker-discover-insights-from-yl-computings-innovative-solution/"><u>Track & Monitor WETH Balances with Our User-Friendly Ethereum Wallet Tracker - Discover Insights From YL Computing's Innovative Solution</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unleash-potential-a-step-by-step-solo-podcast-creation-for-2024/"><u>Unleash Potential A Step-By-Step Solo Podcast Creation for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/updating-made-simple-finding-and-installing-windows-10-patches-with-yl-software-insights/"><u>Updating Made Simple: Finding and Installing Windows 10 Patches with YL Software Insights</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-isolated-viewers-to-shared-experiences-online/"><u>[New] 2024 Approved From Isolated Viewers to Shared Experiences Online</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-boost-your-gaming-presence-with-these-top-14-video-ideas-for-2024/"><u>[New] Boost Your Gaming Presence with These Top 14 Video Ideas for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-where-to-hunt-for-excellent-instagram-ringtones-and-perfect-alarm-crafts-for-2024/"><u>[New] Where to Hunt for Excellent Instagram Ringtones and Perfect Alarm Crafts for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-free-skype-recording-made-easy-mp3-edition/"><u>[Updated] 2024 Approved Free Skype Recording Made Easy - MP3 Edition</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/1726220809140-movavi/"><u>「ムリオンジェネレーション：自由に提供されるオンライン画像ファイル形式変換 - Movavi」</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-uniting-fans-anime-opening-songs-showcase/"><u>2024 Approved Uniting Fans Anime Opening Songs Showcase</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/convertissez-gratuitement-un-fichier-m4a-en-format-3gp-en-ligne-avec-movavi-les-meilleures-astuces/"><u>Convertissez Gratuitement Un Fichier M4A en Format 3GP en Ligne Avec Movavi - Les Meilleures Astuces</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/descargar-y-convertir-archivos-orf-gratis-con-movavi-video-editor-online/"><u>Descargar Y Convertir Archivos Orf Gratis Con Movavi Video Editor Online</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/find-and-update-your-insignia-bluetooth-speaker-drivers-on-a-windows-device/"><u>Find and Update Your Insignia Bluetooth Speaker Drivers on a Windows Device</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/imovie-to-windows-video-editor-migration-guide-for-enhanced-performance/"><u>IMovie to Windows Video Editor Migration Guide for Enhanced Performance</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-effortless-screen-capture-on-chrome-os-devices/"><u>In 2024, Effortless Screen Capture on Chrome OS Devices</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-from-iphone-6s-plus-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID From iPhone 6s Plus without Password?</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/introduzione-ai-file-ogg-come-aprirli-e-sfruttarne-le-potenzialita-in-modo-efficace/"><u>Introduzione Ai File Ogg: Come Aprirli E Sfruttarne Le Potenzialità in Modo Efficace</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/lytter-til-lyd-med-simpelste-audio-extraktor-trekke-taettere-op-pa-netvaerket/"><u>Lytter Til Lyd Med Simpelste Audio Extraktør, Trekke Tættere Op På Netværket</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/must-know-windows-10-tips-and-tricks/"><u>Must-Know Windows 10 Tips and Tricks</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/tout-sur-la-conversion-de-m4a-a-flac-en-ligne-gratuite-solutions-efficaces-avec-movavi/"><u>Tout Sur La Conversion De M4A À FLAC en Ligne Gratuite - Solutions Efficaces Avec Movavi</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/un-maximum-defficience-comment-facilement-televerser-des-clips-video-sur-votre-iphone-en-suivant-ces-6-etapes-simples-avec-movavi-clips/"><u>Un Maximum D'efficience ! Comment Facilement Téléverser Des Clips Vidéo Sur Votre iPhone en Suivant Ces 6 Étapes Simples Avec Movavi Clips</u></a></li>
 </ul></div>
 
